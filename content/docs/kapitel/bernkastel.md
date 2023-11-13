@@ -669,3 +669,95 @@ lochen und mit einer Kordelschnur bündeln. Letztere Aufgabe fand ich erträglic
 oder Personen der Weltgeschichte nach dem Gebrauch der Blätter nur noch schwer zu erkennen waren. Tante Nana lernte meine Kompositionen auf einer „Sitzung“ in unserem Klo kennen 
 und bestellte mehrere Bündel auch für ihr Klo. Was als lustige Idee begonnen hatte, wurde schnell zu einer lästigen Arbeit. Opas Büro-Locher diente zur Herstellung der Löcher 
 und die so gewonnenen kleinen Stanzprodukte verteilte Marlene im ganzen Haus auf alle Teppiche. Diese Idee erlöste mich schlagartig von der langweiligen Herstellung des Klopapiers.
+
+{{<columns>}}
+Ganz plötzlich tauchte auch Tante Hedwig, die jüngste Schwester meiner Mutter in Bernkastel wieder auf. Sie war vor den anrückenden Feinden aus Bad Kreuznach geflohen.
+Für diese Flucht gab es einige ernstzunehmende Begründungen: In Kreuznach führten die kinderlosen Hanks einen Lack und Farben-Großhandel, der den Hanks eine Menge Geld einbrachte,
+der aber für Tante „Hehe“, wie wir Kinder sie nannten, nicht fein genug war. Der ständige Umgang nur mit Handwerkern, die auch noch nach Lack und Farben, nach Spiritus und Reinigungsmittel
+stanken, gefiel ihr nicht. 
+<--->
+![hehe](/hehe.gif)
+{{</columns>}}
+
+{{<columns>}}
+Auch ihr Mann, der Lack-und-Farben-Unteroffizier Peter Hank gefiel ihr nicht besonders. Onkel Peter trank oft einen Schluck zu viel.
+<--->
+![peterhank](/peterhank.gif)
+{{</columns>}}
+
+Dann sang er gerne das Lied vom Soldaten im Argonnerwald oder er erzählte noch lieber die Geschichte von dem russischen Soldaten, 
+den er mit einem einzigen Schuss erschossen hatte. Der Iwan hatte doch tatsächlich versucht, ihm einen Grießpudding zu stehlen, den er zum Abkühlen vor den deutschen Bunker gestellt hatte. 
+Solches Soldaten-Latein fand Hehe nicht sehr vornehm. Sie wollte lieber als Chefin der Doctor-Weinstube kluge Gespräche mit geistreichen und, lieber noch, 
+mit reichen und männlichen Gästen führen. Im Gegensatz zu allen Rheinländern, die zwischen „ch“ und „sch“ keinen hörbaren Unterschied machen,
+betonte Tante Hehe sehr wohl diesen Unterschied. Sie sprach zum Beispiel gerne von „frichem Fich“, oder nannte uns „chmuddelige Cheusale“. 
+Wir Kinder bewunderten unsere vornehme Tante; die Bernkasteler Bürger aber wollten eher mit so einer feinen Dame nichts zu tun haben. 
+Hehe wollte auch ihren teuren Leopardenmantel, den ihr Mann, der Unteroffizier Peter Hank, aus Polen mitgebracht hatte, in etwas geziemendem Umfeld zur Geltung bringen.
+
+# Abschnitt 34
+Ein weiterer Grund 	lag in der Tatsache, dass Onkel Peter als Unteroffizier an der Ostfrontkämpfte und die kleine Firma kurz vor dem Bankrott stand. 
+Letztlich gab es noch einen Grund, den Tante Hedwig nur im allerkleinsten Kreise erzählte:Die Firma der Eheleute Hank gehörte vormals den Eheleuten 
+Levi und Rachel Goldmann, die die Firma den Hanks gegen ein kleines Entgelt überlassen hatten. Das alles könne irgendwann einmal zu unliebsamen 
+Komplikationen führen, wenn die Goldmanns vielleicht irgendwann einmal wieder auftauchen würden. Tante Hedwig war eine kluge Geschäftsfrau, 
+denn sie hatte, bevor sie floh, eine ganze Menge größerer und kleinerer Tonnen und Büchsen mit Leinöl gefüllt und überall auf dem Hunsrück 
+bei Geschäftsfreunden und Handwerkern verteilt. Das war sehr klug von ihr, denn Leinöl war eingutes und begehrtes Nahrungsmittel, 
+darüber hinaus konnte man damit Ölfarben herstellen, Holz imprägnieren, Metalle vor Korrosion schützen und Salat würzen. Leinöl war flüssiges Gold, 
+welches dazu auch noch sehr gut schmeckte, Leinöl war einfach unbezahlbar!
+
+Mama Maria erzählte ihrer Schwester von einem Stück Schinken, das in Monzelfeld auf sie warte. Tante Lieschen aus Ottweiler hatte ihre Monzelfelder 
+Verwandtschaft gebeten, die Massons mit ein bisschen „Fressalien“ zu versorgen. Tante Hedwig, die noch einmal- kurz vor der Front- 
+in der Nähe von Birkenfeld ein paar Kanister Leinöl einsammeln wollte, bot Mama an, sie im Auto bis zur Bärenhalde mitzunehmen. 
+Von da aus könnte Sie dann Monzelfeld in einem kleinen Fußmarsch erreichen und den Schinken in Sicherheit bringen. 
+Zurück müsse sie aber dann den ganzen Weg zu Fuß gehen. Mama fand den Vorschlag gut und ich war glücklich, im Opel-P4 der Tante mitfahren zu dürfen. 
+Der P4 konnte „mit 80 Sachen um die Ecke“ fahren, hatte viele Uhren,
+Anzeiger, Blinker und Spiegel; er würde mir die Gelegenheit bieten,
+vor meinen Kumpels einmal ganz groß rauszukommen.Am nächsten Morgen starteten Mama und ich unsere Expedition nach Monzelfeld.
+Es herrschte ein reger Verkehr auf der Straße, weil alle flüchteten Militärfahrzeuge versuchten, die Hunsrück-Höhenstraße zu erreichen.
+An der Bärenhalde stiegen wir aus.  Der Weg stieg nur wenig an und führte durch dichten Wald, der uns Schutz vor den Tieffliegern bot.
+Als wir aus dem Wald herauskamen, lag Monzelfeld links vor uns. An der kleinen Kreuzung vor dem Ort standen auch ein paar Bäume, die
+es zu erreichen galt, bevor uns die Jagdflugzeuge, die die Bomben-geschwader begleiteten, entdecken konnten.
+
+Die Rechnung ging nicht auf. Auf dem halben Weg zwischen dem Wald und der Wege-Kreuzung hörten wir den hellen, 
+giftigen Ton eines angreifenden Fliegers und sahen die Spur der einschlagenden Bord-waffe auf uns zu rasen. Bevor Mama die Gefahr erkannte, war sie
+schon vorbei. Ganz dicht neben uns schlugen die Geschosse in den Wiesenboden. Dann hörten wir an dem tiefen Geheul der Flugzeug-motoren, 
+dass sich der Flieger entfernte. Mama zerrte mich am Arm in Richtung der Baumgruppe an der Kreuzung, als wir plötzlich wieder den heller werdenden 
+Motorenlärm des Angreifers hörten. Jetzt griff uns der Flieger von hinten an und wieder zischten die Geschossgarben an uns vorbei. 
+Der Jäger spielte „Karnickel jagen“ mit uns. 
+
+Als wir die schützenden Bäume erreichten, sahen wir, dass der Jäger wieder eine Kurve flog, die Schnauze nach unten drückte und die Bordwaffe abfeuerte. 
+Mama und ich standen jetzt hinter einem dicken, kugel-sicheren Baum und atmeten auf.
+
+# Abschnitt 35
+Der Jäger, den wir bei seinen Zielanflügen vorne im Cockpit erahnen konnten, sah ein, dass ihm die Karnickel entkommen waren und flog davon. 
+Während Mama kreidebleich und stumm den Rest des Weges nach Monzelfeld eilte, war ich ziemlich stolz, den Kampf mit einem Jagdflugzeug heil überstanden zu haben 
+und dass ich „Ballmanns Horst“ eine neue Heldentat berichten konnte.
+__
+Wir erreichten Monzelfeld und wurden von unseren Gastgebern freundlich und großzügig empfangen. Schnippelbohnen mit Bauchspeck und Butterbrot 
+gab es zu Mittag und oben auf der Suppe schwammen dicke Fettaugen. Später gingen alle in die gute Stube, wo es riesige Stücke Streuselkuchen 
+mit kühler Vollmilch für das Kind gab. Die Erwachsenen tranken dazu einen „Muckefuck“, den stark duftenden Ersatzkaffee aus gebrannten Zichorienwurzeln, 
+gebrannten Eicheln und wenigen echten Kaffee-Bohnen. Den Muckefuck gab es mit Zucker und Sahne. Die Bereitung des Muckefucks mit echten Bohnen wurde zelebriert
+wie die Heilige Wandlung in der Kirche. Dabei erzählten wir von Ottweiler, Tante Lieschen, Onkel Jäb und dem Tabakladen. 
+Und Mama bestätigte, dass die Sträucher, die Tante Lieschen bei ihrem letzten Besuch in Monzelfeld mitgenommen hatte, in Onkel Jäbs Garten gut angewachsen waren 
+und dass er die Johannisbeeren mit einer Selbstschussanlage beschütze. Die Krönung unseres Besuches aber war das riesengroße Stück Schinken, 
+welches, in Sackleinen verpackt, wir jetzt fast 6 Kilometer weit schleppen durften. Die Gastfreundschaft und die großzügige Fresserei entschädigte 
+Mama und mich für den erlittenen Schrecken und die elende Schlepperei auf dem Heimweg.
+
+Der Heimweg war ein Kampf gegen die Flut der Flüchtenden. Panzer, Kanonen, Tross, Kradfahrer und Soldaten.
+
+Alle wirkten abgekämpft, verschmutzt und ungepflegt, stumpf und gleichgültig. Mama und ich im Qualm und Gebrüll der Motoren. Wir wurden nicht einmal mehr wahrgenommen; 
+kein Winken, kein Rufen und kein Lächeln mehr; nur noch Angst und Verzweiflung. Nach einem langen und ermüdenden Fußmarsch kamen wir wieder in Bernkastel an, 
+wo wir mitsamt dem Schinken direkt in den Felsenkellerlaufen mussten, weil zu unserer Begrüßung alle Sirenen der Stadt ihre„Fliegeralarm“ heulten. 
+Marlene, Nana und der kleine Manfred waren auch schon da. Todmüde von der Wanderung verschlief ich den Angriff und wachte erst auf, 
+als die Sirenen „Entwarnung“ heulten.
+
+Wenige Tage später, es war am 2. März, flog ein feindliches Flugzeug aus der Richtung Andel heran und unterflog die Stellungen der
+deutschen 8,8 Geschütze. Anscheinend wurde es von unserer Luftaufklärung nicht erkannt und deshalb wurde auch kein Luftalarm ausgelöst. 
+Der Bomber wollten offensichtlich den fliehenden deutschen Truppen den Rückzug abschneiden und versuchte die Moselbrücke zwischen Bernkastel und Kues zu treffen. 
+Das Flugzeug wurde aber in der Moselbiegung ein wenig aus der Kurve getragen und so fielen die Bomben vorne in die erste Häuserreihe nahe am Gestade. 
+Bei dem Bombenangriff starben 29 Bürger, Soldaten und Fremdarbeiter. Hilfreiche Männer und Frauen kletterten -mit Hacken, Schaufeln und Taschenlampen bewaffnet- 
+über die Trümmer und versuchten, in die Keller zu gelangen, um die Lebenden zu befreien, die Verletzten zu bergen und die Toten mit einem fürchterlich
+beißendem, chlorhaltigen Desinfektionsmittel zu bestreuen. Auch die schöne, alte „Kurfürstliche Kellerei“ wurde schwer getroffen.
+
+![Kellerei](/kellerei.jpg)
+{{< hint info >}}
+_Abbildung:_ Die kurfürstliche Kellerei
+{{< /hint >}}
