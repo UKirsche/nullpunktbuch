@@ -37,8 +37,10 @@ Die „Creme“ enthält:
     Diese duftige und optisch schöne „creme“ schlürft man genussvoll
     und garniert mit geistreicher Unterhaltung und mit lebhafter Gestik
 
-Die Kathedrale in Metz:
 ![Metz](/metz_kathedrale2.jpg)
+{{< hint info >}}
+_Abbildung:_ Der große Leuchter in der Kathedrale von Metz
+{{< /hint >}}
 
 # Abschnitt 8
 Die deutsche Version besteht aus einem stark gebundenen breiigen Gemisch aus dicken Erbsen und massiven Brocken aus Speck und Schinken, Schwarte, Bratenresten und gewürfelter Fleischwurst. 
