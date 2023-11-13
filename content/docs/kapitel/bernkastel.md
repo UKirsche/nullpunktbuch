@@ -730,7 +730,7 @@ Mama und ich standen jetzt hinter einem dicken, kugel-sicheren Baum und atmeten 
 Der Jäger, den wir bei seinen Zielanflügen vorne im Cockpit erahnen konnten, sah ein, dass ihm die Karnickel entkommen waren und flog davon. 
 Während Mama kreidebleich und stumm den Rest des Weges nach Monzelfeld eilte, war ich ziemlich stolz, den Kampf mit einem Jagdflugzeug heil überstanden zu haben 
 und dass ich „Ballmanns Horst“ eine neue Heldentat berichten konnte.
-__
+
 Wir erreichten Monzelfeld und wurden von unseren Gastgebern freundlich und großzügig empfangen. Schnippelbohnen mit Bauchspeck und Butterbrot 
 gab es zu Mittag und oben auf der Suppe schwammen dicke Fettaugen. Später gingen alle in die gute Stube, wo es riesige Stücke Streuselkuchen 
 mit kühler Vollmilch für das Kind gab. Die Erwachsenen tranken dazu einen „Muckefuck“, den stark duftenden Ersatzkaffee aus gebrannten Zichorienwurzeln, 
