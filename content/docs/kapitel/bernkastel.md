@@ -459,59 +459,76 @@ Dieser Prozess dauerte fast einen Monat und durfte weder durch Voralarm, Alarm o
 die jeweiligen Eigner der Tabakpflanzen oder die Finanziers des kleinen aber ertragreichen Schwarzmarkt-Unternehmens zusammengerufen.
 
 # Abschnitt 25
-Ich konnte gelegentlich am Tabak-Kollegium teilnehmen und durfte dann die kleine Schneidemaschine bedienen und nachher den fertig geschnittenen Tabak in die Lederbeutel verpacken. Ich erinnere mich noch heute an die geheimnisvolle Stimmung der süchtigen Bürger, Verschwörer, Schieber und Schwarzhändler im überheizten, verqualmten und verdunkelten Wohnzimmer in der Grabenstraße. Der herb-süße Duft des frisch fermentierten Tabaks erinnerte an den wunderbaren Duft des frischen Tabaks im Laden von Tante Lieschen und Onkel Jäb in Ottweiler. Ganz besonders kernig und frisch war der Duft des aus den dem hölzernen Stängel gewonnenen Tabak, der noch lange auf der Straße mit der Nase erkennen ließ, dass dort ein genussvoller Pfeifenraucher gegangen war.Wenn der Tabak dann fertig war, saßen die alten Männer wie Verschwörer zusammen, begutachteten den Duft des Tabaks und des Rauches, lobten seine Farbe, entschieden über die Einstellung der Schneidemesser für den Schnitt. Krüll-Schnitt war für die Pfeife, Feinschnitt war für Zigaretten. Mit kleinen Maschinen wurden Zigaretten gedreht, bestaunt, herumgereicht und gelobt. Der Virtuose konnte mit seinen feingliedrigen Fingern und mit Hilfe einer zierlichen Wickelapparatur schöne, feste und schlanke Zigaretten drehen. Mit spitzer Zunge benetzte der Virtuose abschließend die winzige Klebespur auf dem dünnen Zigarettenpapier und legte die Zigarette mit einer zeremoniellen Handbewegung dann auf den Stapel vor dem jeweiligen Eigentümer. Währen der Tabak-Zeremonie wurde viel Wein getrunken, Akkordeon gespielt, gesungen und der Krieg und besonders die Engländer, verflucht:
+Ich konnte gelegentlich am Tabak-Kollegium teilnehmen und durfte dann die kleine Schneidemaschine bedienen und nachher den fertig geschnittenen Tabak in die Lederbeutel verpacken. 
+Ich erinnere mich noch heute an die geheimnisvolle Stimmung der süchtigen Bürger, Verschwörer, Schieber und Schwarzhändler im überheizten, verqualmten und verdunkelten Wohnzimmer 
+in der Grabenstraße. Der herb-süße Duft des frisch fermentierten Tabaks erinnerte an den wunderbaren Duft des frischen Tabaks im Laden von Tante Lieschen und Onkel Jäb in Ottweiler. 
+Ganz besonders kernig und frisch war der Duft des aus den dem hölzernen Stängel gewonnenen Tabak, der noch lange auf der Straße mit der Nase erkennen ließ, 
+dass dort ein genussvoller Pfeifenraucher gegangen war.Wenn der Tabak dann fertig war, saßen die alten Männer wie Verschwörer zusammen, begutachteten den Duft des Tabaks und des Rauches, 
+lobten seine Farbe, entschieden über die Einstellung der Schneidemesser für den Schnitt. Krüll-Schnitt war für die Pfeife, Feinschnitt war für Zigaretten. 
+Mit kleinen Maschinen wurden Zigaretten gedreht, bestaunt, herumgereicht und gelobt. Der Virtuose konnte mit seinen feingliedrigen Fingern und mit Hilfe einer zierlichen Wickelapparatur schöne, 
+feste und schlanke Zigaretten drehen. Mit spitzer Zunge benetzte der Virtuose abschließend die winzige Klebespur auf dem dünnen Zigarettenpapier und legte die Zigarette mit einer zeremoniellen 
+Handbewegung dann auf den Stapel vor dem jeweiligen Eigentümer. Währen der Tabak-Zeremonie wurde viel Wein getrunken, Akkordeon gespielt, gesungen und der Krieg und besonders die Engländer, verflucht:
 England, das perfide Albion, ist uns Deutschen ein echter Erzfeind.
 
-England bombardiert unsere Wohngebiete und missbraucht die 5. Symphonie von unserem verehrten Beethoven, um seine verlogene Propaganda im Rundfunk zu verbreiten. Gott sei Dank fliegen jetzt die deutschen Wunderwaffen V1 und V2 dorthin und richten eine fürchterliche Vergeltung in den Wohnvierteln von London an.
+England bombardiert unsere Wohngebiete und missbraucht die 5. Symphonie von unserem verehrten Beethoven, um seine verlogene Propaganda im Rundfunk zu verbreiten. 
+Gott sei Dank fliegen jetzt die deutschen Wunderwaffen V1 und V2 dorthin und richten eine fürchterliche Vergeltung in den Wohnvierteln von London an.
 Dann wurden die Italiener verflucht, die an keiner Front standhielten und lieber schon abhauten, bevor es ernst wurde. Wahrscheinlich hatten deren Panzer garkeinen Vorwärtsgang!
-Und die Franzosen wurden verflucht, weil sie jeden Sieger
-mit großem Trara willkommen hießen und weil sie eigentlich ein weichlicher Erbfeind seien und es nur wenig Spaß mache, gegen die
-zu siegen. Man hätte ihnen diesmal aber gezeigt, wo der Hammer
-hänge. Allerdings“ müsse man zugeben, dass man die Französinnen
-und das Essen mit anderen Augen betrachten könne.
-Als man die Schlimmsten der rund 50 Feinde des Reiches verflucht hatte, verfluchte man noch die Juden, die, genau genommen, an allem Elend schuld wären. Sie hätten nicht nur ihren Volksgenossen Jesus, einen der drei Herrscher des himmlischen Reiches ermordet, sondern auch die gesamte Wirtschaft unseres Deutschen Reiches ausgebeutet und ruiniert.
-Ehrlichkeitshalber müsse man aber die Bernkasteler Juden
-etwas in Schutz nehmen. Keiner von diesen habe so hässlich ausgesehen, wie sie auf den Plakaten der Nazis aussähen, 
+Und die Franzosen wurden verflucht, weil sie jeden Sieger mit großem Trara willkommen hießen und weil sie eigentlich ein weichlicher Erbfeind seien und es nur wenig Spaß mache, gegen die
+zu siegen. Man hätte ihnen diesmal aber gezeigt, wo der Hammer hänge. Allerdings“ müsse man zugeben, dass man die Französinnen und das Essen mit anderen Augen betrachten könne.
+Als man die Schlimmsten der rund 50 Feinde des Reiches verflucht hatte, verfluchte man noch die Juden, die, genau genommen, an allem Elend schuld wären. 
+Sie hätten nicht nur ihren Volksgenossen Jesus, einen der drei Herrscher des himmlischen Reiches ermordet, sondern auch die gesamte Wirtschaft unseres Deutschen Reiches ausgebeutet und ruiniert.
+Ehrlichkeitshalber müsse man aber die Bernkasteler Juden etwas in Schutz nehmen. Keiner von diesen habe so hässlich ausgesehen, wie sie auf den Plakaten der Nazis aussähen, 
 keiner hätte nur unverständliches Kauderwelsch gesprochen oder nach diesem widerlichen Knoblauch gestunken.
 
 # Abschnitt 26
-Es sei sehr peinlich, dass keiner im Tabak-Kollegium überhaupt einen einzigen bösen Juden kenne. Man bedauere auch sehr, dass das alte und freundliche jüdische Ehepaar Döblin plötzlich verschwunden und unauffindbar sei. Man hoffe sehr, dass die beiden tatsächlich in Cochem im Eisenbahnzug von einer englischen Bordwaffenkugel getroffen und nicht noch Opfer der Endlösung geworden seien.
-Abschließend verfluchte man mit etwas gedämpfter Stimme auch die lokalen Nazis in den Ortsgruppen, den Kreisgruppen und im Gau, die gegen den unerschütterlichen Willen des Führers ihre eigene, üble Suppe kochten und Spielchen trieben, von denen der Führer mit Sicherheit nichts wisse. „Ja! Wenn der Führer das wüsste!“.
-Mit einer gewissen Rührung nahm einer der Alten das Hitlerbild von seinem Ehrenplatz im Wohnzimmer ab, und legte es auf dem Tisch zwischen die leeren Weinflaschen. Mit Schrecken stellte das Tabak-Kollegium fest, dass der Tabakrauch im Laufe des tausendjährigen Reiches an der Wand genau anzeigte, wo das Führerbild aufgehängt worden war und dass diese verräterische Stelle mangels Farben oder Tapeten leider für jeden erkennbar war. Ähnliche Betrachtungen galten auch für die Schnauzbärte an den Oberlippen von drei der fünf alten Männer. Diese kleinen, schwarzen Bärtchen drückten jetzt allzu deutlich die Verehrung des Bartträgers für seinen Führer aus. Das Brummen der englischen Bomberverbände, das gelegentliche Knattern von Bordkanonen und das seltsame Wetterleuchten über den Weinbergen
-in Kues machten die Tabakbrüder dann doch etwas ängstlich. Das Tagesleben in Bernkastel war im Allgemeinen bis dahin nicht von allzu großer Angst geprägt und die Hoffnung auf den Endsieg war schon noch ein ganz klein bisschen vorhanden.
-Der Führer wurde von allen geliebt und geachtet und die sagenumwobene 8,8-Flak, von der 3 Geschütze auf dem Kueser
-Plateau standen, signalisierte mit ihrem ohrenbetäubenden Radau,
-dass noch nicht alles verloren war. Tagsüber zogen am Himmel riesige Pulks amerikanischer Bomberverbände ruhig brummend über Bernkastel hinweg ins Reich und zerbombten mit hoher Präzision die Industriezentren der Deutschen Städte und alle Verkehrskotenpunkte. Wo sie ihre Bomben abwarfen, konnte man abends im Rundfunk erfahren. Diese schlimmen Nachrichten wurden dann zwischen anderen Nachrichten versteckt, aus denen zu erfahren war, dass tapfere
-deutsche Soldaten in der Eifel den Brückenkopf an einem zwei Meter breiten Bach heldenhaft zurückerobern konnten.
-An Bernkastel hatten die feindlichen Bomberverbände noch kein
-rechtes Interesse. Lediglich wenn sie ihr Zielgebiet nicht erreichen konnten, oder wenn sie keine gute Sicht im Zielgebiet hatten oder
+Es sei sehr peinlich, dass keiner im Tabak-Kollegium überhaupt einen einzigen bösen Juden kenne. Man bedauere auch sehr, dass das alte und freundliche jüdische Ehepaar Döblin plötzlich verschwunden und unauffindbar sei. 
+Man hoffe sehr, dass die beiden tatsächlich in Cochem im Eisenbahnzug von einer englischen Bordwaffenkugel getroffen und nicht noch Opfer der Endlösung geworden seien.
+Abschließend verfluchte man mit etwas gedämpfter Stimme auch die lokalen Nazis in den Ortsgruppen, den Kreisgruppen und im Gau, die gegen den unerschütterlichen Willen des Führers ihre eigene, üble Suppe kochten und Spielchen trieben, 
+von denen der Führer mit Sicherheit nichts wisse.
+
+    „Ja! Wenn der Führer das wüsste!“.
+
+Mit einer gewissen Rührung nahm einer der Alten das Hitlerbild von seinem Ehrenplatz im Wohnzimmer ab, und legte es auf dem Tisch zwischen die leeren Weinflaschen. Mit Schrecken stellte das Tabak-Kollegium fest, 
+dass der Tabakrauch im Laufe des tausendjährigen Reiches an der Wand genau anzeigte, wo das Führerbild aufgehängt worden war und dass diese verräterische Stelle mangels Farben oder Tapeten leider für jeden erkennbar war. 
+Ähnliche Betrachtungen galten auch für die Schnauzbärte an den Oberlippen von drei der fünf alten Männer. Diese kleinen, schwarzen Bärtchen drückten jetzt allzu deutlich die Verehrung des Bartträgers für seinen Führer aus. 
+Das Brummen der englischen Bomberverbände, das gelegentliche Knattern von Bordkanonen und das seltsame Wetterleuchten über den Weinbergen in Kues machten die Tabakbrüder dann doch etwas ängstlich. 
+Das Tagesleben in Bernkastel war im Allgemeinen bis dahin nicht von allzu großer Angst geprägt und die Hoffnung auf den Endsieg war schon noch ein ganz klein bisschen vorhanden.
+Der Führer wurde von allen geliebt und geachtet und die sagenumwobene 8,8-Flak, von der 3 Geschütze auf dem Kueser Plateau standen, signalisierte mit ihrem ohrenbetäubenden Radau,
+dass noch nicht alles verloren war. Tagsüber zogen am Himmel riesige Pulks amerikanischer Bomberverbände ruhig brummend über Bernkastel hinweg ins Reich und zerbombten mit hoher Präzision 
+die Industriezentren der Deutschen Städte und alle Verkehrskotenpunkte. Wo sie ihre Bomben abwarfen, konnte man abends im Rundfunk erfahren. Diese schlimmen Nachrichten wurden dann zwischen 
+anderen Nachrichten versteckt, aus denen zu erfahren war, dass tapfere deutsche Soldaten in der Eifel den Brückenkopf an einem zwei Meter breiten Bach heldenhaft zurückerobern konnten.
+An Bernkastel hatten die feindlichen Bomberverbände noch kein rechtes Interesse. Lediglich wenn sie ihr Zielgebiet nicht erreichen konnten, oder wenn sie keine gute Sicht im Zielgebiet hatten oder
 wenn sie zufällig von einer deutschen Flak beschossen wurden, dann ließen sie ihre Bomben irgendwohin auf Deutschland fallen, bevor sie wieder landeten.
 Anders war es, wenn es dunkel wurde und die englischen Bomber kamen, die ihre Bomben auf alle Stellen abwarfen, die durch eine mangelnde Verdunklung der Fenster sichtbar waren, also auch auf
 kleine Dörfer und Städte.
 
 # Abschnitt 27
 Obwohl die einzelnen Angriffswellen der Engländer durch Voralarm und Hauptalarm rechtzeitig angekündigt wurden, blieb oft nicht genug Zeit zwischen der Entwarnung nach einem Angriff und der nächsten Angriffswelle.
-Mutter Maria, Lieschen und ich jagten in solchen Nächten oft mehrmals zwischen der Doctor-Weinstube und dem Bunker hin und her. Dies war eine aufreibende Angelegenheit, weil jedes Mal die langen Strümpfe angezogen werden mussten, dann mussten die langen Strümpfe an den Stumpfband-haltern befestigt werden, die ihrerseits an den Strippen des Leibchens festgemacht waren. Dann mussten die Kinderschuhe über die langen Strümpfe gestülpt werden und die Schuhriemen über die vielen Ösen an den Schuhen gebunden werden. Das Ganze fand in der Regel bei Kerzenlicht statt und führte oft zu heftigen Reaktionen der gestressten Mutter. Besonders laut wurde die Szene, wenn Marlene unten an der Türe feststellte, dass sie ihr Bärchen auf dem Bett liegengelassen hatte. Mit fliegenden, offenen Mänteln und Jacken, schief sitzenden Ohrenmützen und flatternden Schals; mehr gezerrt als selbst gelaufen; stürzte man mit anderen Familien in Richtung Bunker.
+Mutter Maria, Lieschen und ich jagten in solchen Nächten oft mehrmals zwischen der Doctor-Weinstube und dem Bunker hin und her. Dies war eine aufreibende Angelegenheit, weil jedes Mal die langen Strümpfe angezogen werden mussten, 
+dann mussten die langen Strümpfe an den Stumpfband-haltern befestigt werden, die ihrerseits an den Strippen des Leibchens festgemacht waren. Dann mussten die Kinderschuhe über die langen Strümpfe gestülpt werden und die Schuhriemen 
+über die vielen Ösen an den Schuhen gebunden werden. Das Ganze fand in der Regel bei Kerzenlicht statt und führte oft zu heftigen Reaktionen der gestressten Mutter. Besonders laut wurde die Szene, wenn Marlene unten an der Türe feststellte, 
+dass sie ihr Bärchen auf dem Bett liegengelassen hatte. Mit fliegenden, offenen Mänteln und Jacken, schief sitzenden Ohrenmützen und flatternden Schals; mehr gezerrt als selbst gelaufen; stürzte man mit anderen Familien in Richtung Bunker.
 Einmal tauchte auch Ballmanns Horst aus dem Dunkel der Nacht auf und schloss sich unserer Schar an. Auf unserem Heimweg aus dem Bunker bot Mutter Maria Horst an, öfter mit uns in den Bunker zu gehe, was Horst entschieden ablehnte:
-erstens gefiele im das Kasperletheater nicht und
-zweitens setze er sich nicht auf einen Pinkeleimer, in den vorher schon Mädchen gepinkelt hätten;
-Er brunze hin, wohin er wolle und das nur im Stehen!
+erstens gefiele im das Kasperletheater nicht und zweitens setze er sich nicht auf einen Pinkeleimer, in den vorher schon Mädchen gepinkelt hätten;
 
-Auch meiner Schwester und mir gefiel die Sache mit dem Eimer nicht. Es war auch schwer zu verstehen, dass man; mitten in einem Krieg;  in einem dunklen, patschenassen Bunkerkeller, in dem das Wasser von oben herabtropfte und sich in großen Pfützen auf dem Boden breit-machte, solche beschämenden Regeln einhalten sollte. Wir pinkelten dann gelegentlich einfach in die Hosen, was dann auf dem Heimweg durch die kalte Winternacht für kurze Zeit eine wohlige Wärme verbreitete.Wieder zuhause angekommen legten sich die Kinder
-wieder ins Bett, wo die dicke Wärmeflasche noch ein wenig zischte
-und warteten auf das schauerliche Heulen der Sirene, die den nächsten Voralarm verkündete
+    Er brunze hin, wohin er wolle und das nur im Stehen!
+
+Auch meiner Schwester und mir gefiel die Sache mit dem Eimer nicht. Es war auch schwer zu verstehen, dass man; mitten in einem Krieg; in einem dunklen, patschenassen Bunkerkeller, 
+in dem das Wasser von oben herabtropfte und sich in großen Pfützen auf dem Boden breit-machte, solche beschämenden Regeln einhalten sollte. Wir pinkelten dann gelegentlich einfach in die Hosen, 
+was dann auf dem Heimweg durch die kalte Winternacht für kurze Zeit eine wohlige Wärme verbreitete.Wieder zuhause angekommen legten sich die Kinder 
+wieder ins Bett, wo die dicke Wärmeflasche noch ein wenig zischte und warteten auf das schauerliche Heulen der Sirene, die den nächsten Voralarm verkündete
 Endlich verkündete unser Klassenlehrer. Herr Cygrang in der Jungenklasse, dass wegen der Tiefflieger der Schulunterricht vorübergehend ausfallen werde. Herr Lehrer Cygrang
-war bei allen Schülern sehr verhasst, weil er ein zugewanderter Nazi
-aus Luxemburg war, der es viel schlimmer trieb als unsere
-einheimischen Nazi-Lehrer. Er wurde von den Schülern heimlich als luxemburger Vaterlandverräter bezeichnet, was er wusste oder
-zumindest ahnte. Darum zeigte er seinen echten deutschen Parteigenossen immer wieder, dass er linientreu und den Führer treu ergeben war. Jeden Morgen mussten die Jungen lange strammstehen und ein Hitlerlied singen, welches immer mit einem lauten Hitlergruß endete. Wer den Hitlergruß mit der falschen Hand ausführte, bekam
-drei Schläge mit dem Rohrstock über die Finger. Wer bei den
-Schlägen zuckte oder weinte oder seine Hand zurückzog, bekam einen sogenannten Nachschlag, der von unten gegen die Finger geführt
-wurde und scheußlich wehe tat. Beim Herrn Klassenlehrer lernte ich, den Mund zu halten und nur zu reden, wenn der Herr Klassenlehrer Cygrang mich etwas fragte. 
+war bei allen Schülern sehr verhasst, weil er ein zugewanderter Nazi aus Luxemburg war, der es viel schlimmer trieb als unsere einheimischen Nazi-Lehrer. 
+Er wurde von den Schülern heimlich als luxemburger Vaterlandverräter bezeichnet, was er wusste oder zumindest ahnte. Darum zeigte er seinen echten deutschen Parteigenossen immer wieder, dass er linientreu und den Führer treu ergeben war. 
+Jeden Morgen mussten die Jungen lange strammstehen und ein Hitlerlied singen, welches immer mit einem lauten Hitlergruß endete. Wer den Hitlergruß mit der falschen Hand ausführte, bekam
+drei Schläge mit dem Rohrstock über die Finger. Wer bei den Schlägen zuckte oder weinte oder seine Hand zurückzog, bekam einen sogenannten Nachschlag, der von unten gegen die Finger geführt
+wurde und scheußlich weh tat. Beim Herrn Klassenlehrer lernte ich, den Mund zu halten und nur zu reden, wenn der Herr Klassenlehrer Cygrang mich etwas fragte. 
 
 # Abschnitt 28
-Auch beeindruckte mich die feierliche Begrüßung des Herrn Lehrers und das donnernde „Heil Hitler“ aus den Kehlen der deutschen Jungen. Da der Herr Lehrer von Anfang an seinen kleinen Rohrstock als Lehrmittel einsetzte, lernte ich ziemlich schnell den Hitlergruß mit der rechten Hand auszuführen und den linken Arm an der Hosennaht zu halten. Es wurde ständig geprügelt, was von allen, die etwas zu sagen hatten, als eine
+Auch beeindruckte mich die feierliche Begrüßung des Herrn Lehrers und das donnernde „Heil Hitler“ aus den Kehlen der deutschen Jungen. Da der Herr Lehrer von Anfang an seinen kleinen Rohrstock als Lehrmittel einsetzte, 
+lernte ich ziemlich schnell den Hitlergruß mit der rechten Hand auszuführen und den linken Arm an der Hosennaht zu halten. Es wurde ständig geprügelt, was von allen, die etwas zu sagen hatten, als eine
 sehr nützliche Selbstverständlichkeit angesehen wurde. Es gab Prügel:
+
 - wenn der Tafelschwamm nicht sauber und nass war,
 - wenn der Wischlappen nicht trocken und staubfrei war,
 - wenn die Kreide nicht im Kreidekasten lag,
@@ -520,19 +537,135 @@ sehr nützliche Selbstverständlichkeit angesehen wurde. Es gab Prügel:
 
 Nur „Thomase Herrmänche“ wurde vom Herrn Klassenlehrer oft ver-schont und bekam meistens nur einen Stockschlag über den Rücken, was von uns Jungen fast wie ein Ritterschlag empfunden wurde.
 Deshalb konnten wir Herrmännchen dafür gewinnen, gelegentlich freiwillig die Schuld für irgendein kleineres Vergehen auf sich zu nehmen, was er sich in essbaren Naturalien entgelten ließ. Wenn jedoch die
-große Prügelei drohte, verweigerte Herrmännche sein Schuldgeständnis. Bei der großen Tracht Prügel musste sich der Verurteilte über die Schulbank beugen und seinen Hintern dem Herrn Klassenlehrer entgegenstrecken. Wenn sich der Verurteilte so beugte, konnte er das Firmenschild lesen, welches die Schulmöbelfirma Casalla aus Köln auf der Vorderseite der Schulbank eingebrannt hatte.
+große Prügelei drohte, verweigerte Herrmännche sein Schuldgeständnis. Bei der großen Tracht Prügel musste sich der Verurteilte über die Schulbank beugen und seinen Hintern dem Herrn Klassenlehrer entgegenstrecken. 
+Wenn sich der Verurteilte so beugte, konnte er das Firmenschild lesen, welches die Schulmöbelfirma Casalla aus Köln auf der Vorderseite der Schulbank eingebrannt hatte.
 
-Deshalb hieß die große Tracht Prügel bei den Schülern „Casalla“. Oft fragten die Eltern ihre Kinder nur, ob es in der Schule „Casalla“ gegeben habe; wenn ja, dann gab es zuhause auf der Grundlage einer guten deutschen Tradition wenigsten noch ein paar Ohrfeigen vom Familienvorstand. In der Mädchen-klasse, bei der Lehrerin Fräulein Krummeich, gab es  keine Casalla. Mit
-großer Hingabe bereitete Fräulein Krummeich die Mädchen mit Häkeln,
-Stricken und Sticken auf ihre Zukunft als Witwen, Flakhelferinnen und Granatendreherinnen vor.
+Deshalb hieß die große Tracht Prügel bei den Schülern „Casalla“. Oft fragten die Eltern ihre Kinder nur, ob es in der Schule „Casalla“ gegeben habe; wenn ja, dann gab es zuhause auf der Grundlage 
+einer guten deutschen Tradition wenigsten noch ein paar Ohrfeigen vom Familienvorstand. In der Mädchen-klasse, bei der Lehrerin Fräulein Krummeich, gab es  keine Casalla. Mit
+großer Hingabe bereitete Fräulein Krummeich die Mädchen mit Häkeln, Stricken und Sticken auf ihre Zukunft als Witwen, Flakhelferinnen und Granatendreherinnen vor.
 
-Als die Front schon ganz nahe bei Bernkastel war, da war das Ländchen Luxemburg schon von den Nazis befreit und die befreiten Luxemburger
-waren sehr versessen darauf, die Leute in ihre Finger zu bekommen, die
-sie an die Nazis verraten hatten. Auch dies wusste der Herr Lehrer Cygrang
-und so kam zu dem schlechten Charakter des Herrn Lehrers auch noch seine Angst vor seiner unaufhaltsam auf ihn zurasenden Endabrechnung. Die Schuljungen von Bernkastel waren also dem Schicksal und den Tieffliegern dankbar, die Quälereien und Bösartigkeiten des Herrn Lehrers zu entkommen.
+Als die Front schon ganz nahe bei Bernkastel war, da war das Ländchen Luxemburg schon von den Nazis befreit und die befreiten Luxemburger waren sehr versessen darauf, die Leute in ihre Finger zu bekommen, die
+sie an die Nazis verraten hatten. Auch dies wusste der Herr Lehrer Cygrang und so kam zu dem schlechten Charakter des Herrn Lehrers auch noch seine Angst vor seiner unaufhaltsam auf ihn zurasenden Endabrechnung. 
+Die Schuljungen von Bernkastel waren also dem Schicksal und den Tieffliegern dankbar, die Quälereien und Bösartigkeiten des Herrn Lehrers zu entkommen.
 
-Ich war über diese Wendung nicht sehr erfreut, denn ich hatte
-inzwischen mit zwei weiteren Klassenkameraden ein einträgliches Abkommen geschlossen. Beide Jungen waren nicht sehr begabt in
-der Lösung von Rechenaufgaben. Und so lieferte ich den beiden fast
-täglich die Lösungen ins Haus und bekam dafür schöne geklaute Dinge, wie zum Beispiel einen silbernen Brieföffner mit einem Hakenkreuz in den Fängen des Reichsadlers oder einen echten römischen Morgenstern, mit dem die Römer ihre Sklaven gegeißelt haben. Vor diesem Geschäft hatte Horst seinen Vetter Franz gewarnt,
+Ich war über diese Wendung nicht sehr erfreut, denn ich hatte inzwischen mit zwei weiteren Klassenkameraden ein einträgliches Abkommen geschlossen. Beide Jungen waren nicht sehr begabt in
+der Lösung von Rechenaufgaben. Und so lieferte ich den beiden fast täglich die Lösungen ins Haus und bekam dafür schöne geklaute Dinge, wie zum Beispiel einen silbernen Brieföffner 
+mit einem Hakenkreuz in den Fängen des Reichsadlers oder einen echten römischen Morgenstern, mit dem die Römer ihre Sklaven gegeißelt haben. 
+Vor diesem Geschäft hatte Horst seinen Vetter Franz gewarnt, weil es ihm zu anstrengend erschien.
 
+# Abschnitt 29
+Aus einem ganz anderen Grund wurde das Geschäft auch kein großer Erfolg. Die Schulkameraden hielten mich für einen üblen Klugscheißer und Ausbeuter und ließen mich bei ihren Spielen nur mitspielen, 
+wenn kein anderer Spielkamerad zu finden war. Das war aber nicht ganz so schlimm, wie es sich anhört, weil meine Mutter sowieso Wert darauflegte, dass ich nur mit Kindern aus
+den besseren Familien spielen sollte. Darunter fiel, genau genommen, keiner meiner Schulkameraden und Ballmanns Horst entschädigte mich und meine Mutter voll, weil er ein gewinnbringender Kamerad war, 
+einen sehr guten Eindruck auf Mutter Maria machte und zudem zur feinen, wenn auch leider verarmten, Seitenlinie der Großfamilie Popp gehörte.
+
+In Bernkastel begannen inzwischen bunt zusammengestellte Schanz-Gruppen mit dem Aushub der Löcher für die Panzersperren. 
+Diese Schanzer arbeiteten lustlos und liefen schon bei Voralarm im Laufschritt in den Luftschutzkeller. Horst und ich saßen auf einem Mäuerchen am Weinbergweg nach Graach 
+und sahen von oben den Bauarbeiten zu. Wir philosophierten über den Wert von Panzersperren und wunderten uns, warum eine Panzersperre am Ortsaugang nach Graach stehen sollte, 
+während man doch den Feind am Ortseingang auf der anderen Seite der Stadt erwartete. Die Panzersperre an der Straße nach Graach war eher ein Hindernis für die hektisch flüchtenden deutschen Soldaten.
+Eine dunkle Stelle am Fuße des Mäuerchens erweckte unsere Aufmerksamkeit und nach einigem Buddeln fanden wir in der Erde ein Kästchen mit zweihundert Patronen Kleinkaliber-Munition. 
+Horst und ich gerieten in einen Rausch wegen all der schönen Möglichkeiten, die man mit diesen Knallkörpern verwirklichen könnte.
+
+Eine besonders wirkungsvolle Einsatzmöglichkeit wurde ernsthaft geprüft und sofort umgesetzt: Auf dem Weg nach Graach, etwa 100 Meter hinter den alten Häusern und hinter der kleinen Moselbiegung, 
+liefen die Eisenbahnschienen dicht an der Straße entlang, sie waren aber den direkten Blicken der Leute entzogen. Eine Knallerei würde in der Stadt als natürlicher Klang einer nahen Front empfunden werden. 
+Außerdem konnte man frühzeitig erkennen, ob wieder ein Lazarettzug von oder nach Bernkastel herandampfte. Ideal war diese Stelle auch, weil sie mehrere Fluchtwege durch die Weinberge anbot.
+Als der erste Lazarettzug aus Bernkastel herandampfte, legten die wir erst eine, dann zwei und dann fünf KK-Patronen in größeren Abständen auf die Schienen. 
+Dann kletterten wir auf die Straße und johlten und führten wilde Indianertänze auf.  Der scharfe Knall der ersten Patrone lockte den Lokomotivführer und den Heizer an das Fenster der Lokomotive, 
+die zweite Salve machte die erschreckten  Beamten auf zwei johlende und zappelnde Bösewichter aufmerksam, die dritte Salve versetzte die Lokführer schließlich in Wut und stachelte sie an, 
+Kohlen vom Tender der Lok zu greifen und auf die Bösewichter zu werfen. Der Plan erwies sich als sehr erfolgreich, denn der Lokführer und sein
+Gehilfe feuerten große Mengen an Kohle in unsere Richtung ohne einen von uns zu treffen. Wir sammelten die Kohlen auf und versteckten sie im Straßengraben. 
+Dann gingen wir ins Städtchen zurück und holten zwei Zinkeimer. Die Ausbeute war gut aber die Schlepperei war elend, und so tauschten wir die Kohlen gleich am Ortseingang gegen mehrere Butterbrote. 
+Der unternehmerische Erfolg machte uns glücklich, die Butterbrote machten uns satt und die butterarmen Brotkanten verhökerten wir gegen paar „Blaue Pilot“, die wir oben auf der Panzer-sperre rauchten.
+
+# Abschnitt 30
+**Die Panzersperre** bestand aus Holzstämmen, die um einen Grubenrand aus der Erde herausragten und die mit Erde gefüllt war oder sein sollte. 
+In der Eile war diese hölzerne Sonderanfertigung nicht bis oben hin mit Erde gefüllt worden, so dass sie innen genügend Platz bot, um uns darin zu verstecken. 
+Sie bot in ihrem Inneren einen sicheren Schutz vor den Tieffliegern mit ihren starken Bordkanonen und erlaubte uns, quasi von einem Logenplatz aus, zuzusehen, 
+wie die feindlichen Bomber vergeblich versuchten, die Moselbrücke zu bombardieren. Diese Panzersperre wäre für uns sicher unser Hauptquartier geworden, 
+wenn der Krieg nur lange genug gedauert hätte.
+
+Die deutschen Wehrmachtsfahrzeuge flohen in hellen Scharen durch die Panzersperre, die beidseitig der Straße nach Graach, direkt am Fuße des Weinbergs, aufgebaut war. 
+Die Panzersperre war eine tolle Konstruktion, denn sie konnte die deutschen Fahrzeuge ziemlich ungestört durchlassen, während sie mit Hilfe einiger zusätzlicher Baumstämme 
+angeblich für feindliche Fahrzeuge ein nahezu unüberwindliches Hindernis darstellte.
+
+Etwas benommen vom Tabak, aber überzeugt von unserer Heldentat, kletterten wir von der Panzersperre herunter und nachdem wir unsere Münder mit Moselwasser ausgespült hatten, 
+waren wir einigermaßen sicher, dass die misstrauischen Mütter den Tabakgeruch nicht mehr riechen konnten. Wir vergruben den größten Teil der KK-Munition an der alten Stelle. 
+Horst und ich steckten uns nur ganz wenige Patronen in die Hosentaschen um zu vermeiden, dass die besorgten Mütter nicht bei der abendlichen Leibesvisitation einen größeren Schaden anrichteten. 
+Außerdem wollten wir unserem Freund, dem „Herrmännche“, einige KK-Geschosse zukommen lassen, weil er uns gelegentlich mit Schwarzpulver versorgte, was er mit Hilfe einer selbsterdachten 
+Vorrichtung aus all den Patronen gewann, die jetzt überall herumlagen. Hermann wohnte mit seinen vielen Geschwistern ganz oben in der Moselstraße und war immer für einen Streich zu haben. 
+Wegen seiner vielen rothaarigen Geschwister fiel es im Hause Thomas nicht auf, wenn er einmal nicht anwesend war, was von großem Nutzen sein konnte, wenn es etwas zu organisieren gab.
+Er war klein und wendig und passte durch jedes Kellerloch, wo oft begehrte Lebensmittelvorräte oder Kohlen lagerten Das Ruhrgebiet, Hamburg, Berlin und jetzt Dresden wurden von
+den Alliierten Luftstreitkräften plattgemacht oder in eine Feuerwüste verwandelt. Selbst kleine Städte und Dörfer in der Nähe wurden bombardiert. Die Angriffe der Jagdflugzeuge auf unser Städtchen
+wurden immer häufiger und die Treibjagd der anglo-amerikanischen Bordschützen auf Kinder und alte Leute immer ungezügelter. Das Überleben wurde zu einer täglichen Trainings-Übung. 
+Die kahlen Weinberge ohne Laub boten keine Möglichkeit mehr, sich zu verstecken, aber In den engen Gassen der Stadt war man vor den großkalibrigen Bordwaffen ziemlich sicher.
+
+Trotzdem war es erstaunlich, dass das Gebilde „Stadt Bernkastel“ noch lebenstüchtig blieb: Es gab noch Milch und Brot, Kinder wurden geboren, 
+die Toten wurden noch beerdigt, der Ausscheller verkündigte noch Nachrichten aus dem Bürgermeisteramt, der Briefträger brachte noch Briefe, die Hutmacherin am Gestade legte noch neue Kreationen
+in ihr kleines Schaufenster, die Telefone klingelten noch und die Bürger tranken ihren Moselschoppen.
+
+# Abschnitt 31
+**Dann, am 19. Februar 1945**, schlugen die ersten Bomben mitten in die Stadt. Ich spielte mit Herrmännchen auf dem Bärenpütz, als die Sirenen Vollalarm brüllten und entschied mich, 
+entgegen dem unzweideutigen Befehl meiner Mutter, mit Herrmann in dessen Keller zu gehen. Sein Luftschutzkeller lag ganz in der Nähe, ungefähr da, wo die Grabenstraße in die 
+Alte Römerstraße übergeht, schräg gegenüber dem Haus des Schuhmachermeisters Heinrich Popp.
+
+Weil der Keller aber schon übervoll belegt war, schickte man mich unbarmherzig nach Hause. Vor dem Kellereingang traf ich Opa Heinrich, den Schuster, der mich mit lautem Gebrüll antrieb, zu meiner Familie zu laufen. 
+Mittlerweile war auch schon das Motorengeräusch des Bomberverbandes deutlich zu hören. Ich drückte gerade die schwere Haustür auf als mir eine ungeheure Luftdruckwelle die Arbeit abnahm
+und mich in den Vorraum der Doctor-Weinstube schleuderte. Fenster klirrten, Dachziegel sausten durch die Luft, Menschen schrien. Mama, Marlene und ich rannten in blinder Angst in 
+Richtung Felsenkeller, wo wir unter dem Schutz dicker Schieferschichten endlich Schutz fanden.
+
+Als die Sirenen die Entwarnung verkündeten und wir zurück in unser Haus gingen, sahen wir die Zerstörung am unteren Ende der Grabenstraße, wo man in einer grauen Staubwolke Menschen erkennen konnte, 
+die auf einem Trümmerhaufen versuchten, mit Hacken und Schaufeln die Opfer des Bombenangriffs zu bergen. Eine Luftmine war in Herrmännchens Luftschutzkeller 
+eingeschlagen und die ungeheure Druckwelle hatte alle 41 Insassen auf einen Schlag getötet.
+
+Von den zahlreichen Familienmitgliedern haben nur der Vater und eine Tochter überlebt. Obwohl die ausgegrabenen Leichen entsetzlich zugerichtet waren, hatte niemand einen qualvollen Tod erleiden müssen. 
+Die entsetzte und verstörte Bevölkerung war sogar bereit, diese nüchterne Betrachtung als Trost zu empfinden. Opa Heinrich wurde von der Welle in den hinteren Teil seines Ladens geschleudert, 
+wo er unverletzt, aber ein wenig taub und laut schimpfend gefunden wurde.
+
+Opa Franz war entsetzt über das Ausmaß der Bombardierung. 41 Tote mit einer einzigen Bombe in einer Kleinstadt, die nur 900 Einwohner hat, sei zu viel, wenn man nur ein wenig Terror machen
+wolle, um die Nazis zu destabilisieren. In seinen Telefonaten und Gesprächen stelle er immer wieder fest, dass der Bombenterror die gequälte Bevölkerung eher solidarisch mache und dass 
+ein Neuanfang nach dem Krieg in einem total vernichteten Land sehr teuer werde, wenn dies überhaupt möglich sei.
+
+Er fühlte sich auch in seiner Theorie bestätigt, dass es vollständig sinnlos sei, in einen der Hauskeller zu gehen, weil es in den Bernkasteler Häusern keine gewachsenen Felsenkeller gäbe, 
+die auch nur einer kleinen Bombe standhalten könnten.Es sei sehr einfach, sich auszumalen, was eine Bombe anrichte, wenn sie auf ein Fachwerkhaus treffe, 
+welches nur aus ein bisschen Holz und Lehm bestehe. Er bliebe deshalb lieber in seinem Zimmer.
+
+Da hätte er wenigsten die Chance oben auf dem Trümmerhaufen zu landen! Und deshalb wolle er mit seiner getreuen Hilde weiter in seinem Büro bleiben, 
+weiter an einem wichtigen Artikel für eine Fachzeitschrift schreiben und auf die Amerikaner warten.
+
+# Abschnitt 32
+Opa freute sich schon auf die Amerikaner, die er schon im Ersten Weltkrieg als deutschland-freundliche Sieger kennengelernt habe und die eine Menge besten Weines bei ihm gekauft hätten.
+Diese Erinnerungen weckten aber seinen Überlebensinstinkt so gewaltig, dass er plötzlich entschied, die enge Stadt zu verlassen und auf sein Hofgut, den Bergfried, umzusiedeln. 
+Er bestellte den Hofverwalter Tenheil für den nächsten Morgen, ganz-früh, mit der zweispännigen Kutsche und den beiden Pferden zur Doctor-Weinstube und ließ sich in der Morgendämmerung, 
+bevor die Flieger wieder in der Luft waren, durch die Weinberge zum Hof Bergfried bringen. Natürlich begleitete ihn seine Hilde. Vom Hof Bergfried meldete sich Opa Franz telefonisch 
+in der Hebegasse und informierte uns, dass er heil und unbehelligt angekommen sei und dass er die kulinarischen Reichtümer seines Bauernhofes und die größere Sicherheit vor 
+Bomben und Beschuss sehr genieße.
+
+Auf dem Bernkasteler Friedhof, oben, oberhalb der Stadt, wurden von den Angehörigen der Toten die Gräber ausgehoben und die Leichen irgendwie auf den Friedhof geschafft. 
+Der Fuhrunternehmer Coblenz war sogar bereit, zwischen zwei Angriffswellen seine beiden Pferde vor den Karren zu spannen und einige Leichen in die Burgstraße zu befördern. 
+Der große, prunkvolle, städtische Leichenwagen mit den schwarzen Pferden vor einer großen Trauerversammlung wäre ein zu lockendes Ziel für die jungen, 
+sportlichen Piloten der Jagdflugzeuge gewesen.Dann nahm der Alltag wieder seinen Verlauf und das Interesse auf 150 Gramm frisches Fleisch pro erwachsene Person auf die 
+Reichsfleischmarken A bis F nahm wieder zu. Das Überleben zwischen den verschiedenen Heultönen der Sirenen war so dominant, dass man sich mit dem Gewesenen nicht allzu lange beschäftigen konnte.
+Ballmanns Horst tauchte auch wieder auf und hatte Willi Olk im Schlepptau. Willi war der schlaue Sohn des Dentisten Olk, an den kein Kind eine gute Erinnerung hatte, 
+weil der alte Olk eine Zahnbohrmaschine mit den Füßen wie ein Spinnrad antrieb. Sein Bohrer blieb gelegentlich im Zahn stecken und bereitete dadurch viel mehr
+Schmerzen als der faule Zahn. Sein Sohn Willi war älter als Horst und ich; er war der große Spezialist für unbekannte Munition und für Sachen, von denen man sich eine anständige Knallerei 
+versprach. Willi hatte in der Nähe des Moseltalbahnhöfchens eine lange und dicke Röhre gefunden, die keinen Zünder hatte und aus der ein uns unbekanntes Pulver rieselte. 
+Da sich eine kleine Probe des Pulvers mit einem Streichholz nicht entzünden ließ und weil wir uns den seltenen Fund nicht wegnehmen lassen wollten, trugen wir das große, schwere „Ding“
+in die Damentoilette des Bahnhöfchens und begannen mit unseren Zünd-Tests erst, nachdem wir unseren Fluchtweg ausge-kundschaftet hatten. Wir stellten das „Ding“ schräg in die Ecke
+des Klos, umgaben das Ende des „Dings“, aus dem das Pulver rieselte, mit reichlich Stroh, welches wir mit viel Schwarzpulver anreicherten. 
+Dann legten wir eine Pulverspur von dem „Ding“ bis in den Vorraum der Damentoilette und zündeten das Pulver an. Als sich zunächst nichts ereignete, kommandierte Willi mich in das Klo, 
+um nachzuschauen, was da schiefgegangen sei. Kaum stand ich neben dem Ding, da begann es ohne große Knallerei, sich in einen dicken, undurchdringlichen Nebel aufzulösen.
+
+# Abschnitt 33
+Der Nebel drang in wenigen Sekunden durch alle Ritzen und Spalten und durch Fenster und Türen der Toilette und hüllte die Toilette, den Bahnhof und das Moselufer in einen 
+undurchsichtigen Nebel. Willi und Horst hatten in der ersten Sekunde der Zündung die Flucht ergriffen und waren verschwunden; ich wurde vom Bahnhofsvorsteher Blesius erwischt.
+
+Er schleifte mich aus der Nebelwolke vor das Toilettenhäuschen, rettete wahrscheinlich meine Gesundheit und verdrosch mich aber ganz jämmerlich und ausdauernd. 
+Dann zerrte er mich bis zur Doctor-Weinstube, wo er mich dem Strafgericht von Mutter Maria übergab.
+
+Die Ohrfeigen meiner Mutter fand ich angemessen, ein wenig geärgert habe ich mich, weil mir die Vernebelungsaktion ganz alleine angelastet wurde und ganz schlimm geärgert habe ich mich, 
+weil Willi unter lautem Gelächter überall herumerzählte, er habe genau gewusst, dass es sich bei den „Ding“ um eine Nebelbombe gehandelt habe. 
+Mama Maria zog die Zügel etwas an. Von diesem Tage bekam ich leichte Aufgaben im Haushalt. Kohlen aus dem Keller holen, Kleinholz hauen, Geschirr abtrocknen und Klopapier schneiden, 
+lochen und mit einer Kordelschnur bündeln. Letztere Aufgabe fand ich erträglich, weil man gleichgroße Klo-Blätter so schneiden konnte, dass lesbare Zeitungsauschnitte erhalten blieben 
+oder Personen der Weltgeschichte nach dem Gebrauch der Blätter nur noch schwer zu erkennen waren. Tante Nana lernte meine Kompositionen auf einer „Sitzung“ in unserem Klo kennen 
+und bestellte mehrere Bündel auch für ihr Klo. Was als lustige Idee begonnen hatte, wurde schnell zu einer lästigen Arbeit. Opas Büro-Locher diente zur Herstellung der Löcher 
+und die so gewonnenen kleinen Stanzprodukte verteilte Marlene im ganzen Haus auf alle Teppiche. Diese Idee erlöste mich schlagartig von der langweiligen Herstellung des Klopapiers.
