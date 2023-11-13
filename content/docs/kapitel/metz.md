@@ -1,5 +1,5 @@
 ---
-title: "Metz"
+title: "Metz/ Lothringen"
 weight: 2
 # bookFlatSection: false
 # bookToc: true
@@ -123,3 +123,48 @@ in ihrem Feldpostbrief vom 14. Oktober 1943 an Vater: „es geht alles vorüber,
 
 Die Familie Gangler hielt treu zu uns und sorgte sehr diskret dafür, dass uns kein Leid geschah, wozu mit Sicherheit auch die Nähe des SS-Kasinos beitrug. 
 Ganglers empfahlen meiner Mutter, den Kontakt zur Familie Josua Goldmann zu meiden, weil wir dadurch ziemlich sicher ins Fadenkreuz der Nazis geraten würden.
+
+An einem schönen Sonntagmorgen machten Mama, Lieschen und ich einen Spaziergang entlang des Moselkanals und kamen zufällig am sehr versteckten Unterschlupf der Familie Goldmann vorbei. 
+Die kleine Wohnung stand kalt und leer und sah geplündert und verwüstet aus.
+
+Die Haustür stand offen und auf der Treppe lag die Puppe des kleinen Judenmädchens. Wir Kinder wollten uns der offenen Tür nähern. Mama stand etwa eine Sekunde lang wie versteinert stehen, dann wandte
+sich dann jäh um und schnarrte mit heiserer Stimme:
+
+“Weg hier!“. Sie riss uns an den Armen um die Straßenecke, wo sie nach ein paar Metern stehen blieb und auf den Boden starrte.
+In diesem Moment addierten sich die unklaren Konturen aus den Siegesmeldungen, den Andeutungen der Freunde und Bekannten, den düsteren Schilderungen aus den „schwarz“ abgehörten 
+Feindsendern und den fast noch humorvoll empfundenen Beschimpfungen wie „ab nach Dachau“ oder „den sollte man vergasen“ zu einer mit allen Mutterinstinkten erkannten Bedrohung.
+
+Das erst Halbjahr 1944 verlief ohne besondere Vorkommnisse im neuen Heim. Lieschen und Bube hatten keine Freunde und Freundinnen und
+durften nicht auf der Straße spielen. Nur der Briefträger wurde jeden
+Tag mit Herzklopfen erwartet und unsere Mutter war glücklich, wenn er
+an unserer Türe vorbei ging oder nur eine einfache Feldpostkarte von Vater August überreichte. Der Briefträger- den vormals alle liebten
+und erwarteten, war zu einer Art Todesbote geworden, weil die Briefe
+aus dem siegreichen Reich meist nur schreckliche Nachrichten von
+Zerstörung und Leid enthielten und schlimmstenfalls-es waren die blauen Briefe- in hymnischen Versen den Heldentod eines geliebten Menschen an der siegreichen Front priesen.
+
+![Kinder](/kinder.jpg)
+
+# Abschnitt 12
+Mutter wurde immer nervöser und ängstlicher. Die sonst so kühle Frau war ständig in „Hab-Acht -Stellung“ und rastete gelegentlich aus Anlässen, die uns Kindern
+oft nicht erklärbar waren, vollständig aus. Ganz schlimm war es, als sie glaubte, dass ich die Lebensmittelkarten verloren hätte. Nach
+dem sie mir eine gehörige Tracht Prügel verpasst hatte-die einzige Prügel, die ich je von ihr bezogen habe-rastete sie kurz darauf ein zweites Mal aus, als sie die Lebensmittelkarten in ihrer Kittelschürze entdeckte. Die Karten waren so etwas wie ein Passierschein zum Überleben. Sie waren oft das einzig erfreuliche in den Anzeigen in den Tageszeitungen. Man las sie auf jeden Fall zuerst, bevor man die danebenstehenden Anzeigen über der Heldentot eines Nachbarn registrierte.
+Am 6. Juni 1944 landeten die Amerikaner in der Normandie, dort, wo wir auch unseren Vater vermuteten. Papa hatte bis dahin zuversichtliche FeldpostbIn richtige Kampfhandlungen war er bis dahin anscheinend nicht verwickelt worden. Kurz nach der Landung der Amerikaner kam ein
+Telegramm von Opa aus Bernkastel. In sehr kurzen Worten forderte er uns
+auf, Metz sofort zu verlassen und alles stehen und liegenzulassen. Wir verabschiedeten uns von Familie Gangler und von Familie Bertichamp, die
+uns versicherte, dass sie auf unsere Sachen gut aufpassen würde und
+dass wir alles zurückerhalten würden, egal wie der Krieg ausginge.
+Hals über Kopf sind wir in aller Frühe in einen Zug gestiegen und erreichten Bernkastel noch am selben Tag.
+Am Tag nach unserer Ankunft bemerkte Mama, dass sie all unsere Papiere
+in Metz vergessen hatte: die Geburtsurkunden, die Heiratsurkunde, das Parteibuch von Papa und, was ganz besonders schlimm war, die Lebensmittelkarten.
+
+Sie fuhr umgehend wieder nach Metz, packte alles zusammen und verließ
+zum zweiten Mal unsere Wohnung, die sie bei genauerer Betrachtung aber etwas anders und ordentlicher in Erinnerung hatte.
+Natürlich klingelte sie höflich noch schnell bei unseren Vermietern, um ihnen
+zu sagen, dass sie oben in der Wohnung gewesen waren, um einige
+Unterlagen abzuholen. Das Entsetzen von Herrn und Frau Bertichamp war panisch. Als meine Mutter ihre teure Kristallschüssel und die Bonbonniere entdeckte, die auf dem Wohnzimmertisch standen. Der Wohnzimmertisch
+stand auf unserem Teppich. Maria wurde sofort klar, warum die Leute so panisch regierten. Von der anderen Straßenseite, aus dem Kasino der Gestapo, hörte man den Gesang der deutschen Sieger, die gerne und
+schnell mit Plünderern deutschen Eigentums kurzen Prozess machten.
+
+In der tödlichen Stimmung, sagte meine Mutter dann nach einer Weile die erlösenden Worte: „Behalten Sie alles als Geschenk“. Dann verließ sie das Haus Bertichamp und fuhr wieder nach Bernkastel.
+
+Aus einem Brief der Familie Gangler erfuhren wir kurz darauf, dass eine der ersten Bomben, die die Alliierten auf Metz geworfen haben, das Haus dem Erdboden gleich gemacht habe.
