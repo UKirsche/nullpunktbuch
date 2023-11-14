@@ -9,16 +9,9 @@ weight: 3
 # bookSearchExclude: false
 ---
 # Abschnitt 13
-In Bernkastel trafen wir unsere liebe Hilde wieder. Mama, und wir Kinder begannen nun, uns im renommierten und wohlhabenden Hause Popp, der Doctor-Weinstube, einzunisten. 
-Das fiel uns nicht besonders schwer, weil es das vierte Nest innerhalb von zwei Jahren war, weil der Ort reichlich weit von der Front entfernt war und weil Opa über gute 
-Quellen für die notwendige leibliche Versorgung verfügte. Zu diesen Quellen gehörte der Hof Bergfried, ein von Opa Franz 1919 gebautes Herrenhaus mit großem Garten, 
-mit Stallungen, Wiesen, Obst- und Nussbäumen, mit Kühen, Pferden und Hühnern und einem Verwalterpaar, die Tenheils, mit 2 fast gleichaltrigen Kindern. Im Erdgeschoss 
-des “Hof Bergfried“ war die Wohnung der Familie Tenheil, 2 kleine Fremdenzimmer, eine Milchküche, eine Futterküche, die Ställe für zwei große, friedliche Pferde, 
-6 Kühe und 4 Schweine sowie das Zimmer vom alten Matthes, der als Altknecht der Familie Tenheil auf dem Bergfried sein Gnadenbrot. Er bewohnte ein winziges Zimmer neben 
-dem Stall. Ein Bett, ein Stuhl und ein Kleiderkasten, das war die Einrichtung, die den Alten Matthes glücklich und zufrieden machte. 
-Im ersten Stock und unter dem Dach waren die Räume der Herrschaften und noch mehrere Gästezimmer.
-Opa lebte im Wohnzimmer neben seinem Schlafzimmer, in dem sich auch sein Waffenschrank mit den Jagdbüchsen befand. Kugelbüchsen und Schrotgewehre mit einem, 
-zwei und drei Läufen, kostbar mit Silber beschlagen. Daneben lagen die Schachteln mit sehr verschiedenen Patronen für die Jagd von Fasanen, Rebhühnern, Füchsen, 
+In Bernkastel trafen wir unsere liebe Hilde wieder. Mama, und wir Kinder begannen nun, uns im renommierten und wohlhabenden Hause Popp, der Doctor-Weinstube, einzunisten. Das fiel uns nicht besonders schwer, weil es das vierte Nest innerhalb von zwei Jahren war, weil der Ort reichlich weit von der Front entfernt war und weil Opa über gute Quellen für die notwendige leibliche Versorgung verfügte. Zu diesen Quellen gehörte der Hof Bergfried, ein von Opa Franz 1919 gebautes Herrenhaus mit großem Garten, mit Stallungen, Wiesen, Obst- und Nussbäumen, mit Kühen, Pferden und Hühnern und einem Verwalterpaar, die Tenheils, mit 2 fast gleichaltrigen Kindern. Im Erdgeschoss des “Hof Bergfried“ war die Wohnung der Familie Tenheil, 2 kleine Fremdenzimmer, eine Milchküche, eine Futterküche, die Ställe für zwei große, friedliche Pferde, 6 Kühe und 4 Schweine sowie das Zimmer vom alten Matthes, der als Altknecht der Familie Tenheil auf dem Bergfried sein Gnadenbrot. Er bewohnte ein winziges Zimmer neben dem Stall. Ein Bett, ein Stuhl und ein Kleiderkasten, das war die Einrichtung, die den Alten Matthes glücklich und zufrieden machte. 
+
+Im ersten Stock und unter dem Dach waren die Räume der Herrschaften und noch mehrere Gästezimmer. Opa lebte im Wohnzimmer neben seinem Schlafzimmer, in dem sich auch sein Waffenschrank mit den Jagdbüchsen befand. Kugelbüchsen und Schrotgewehre mit einem, zwei und drei Läufen, kostbar mit Silber beschlagen. Daneben lagen die Schachteln mit sehr verschiedenen Patronen für die Jagd von Fasanen, Rebhühnern, Füchsen, 
 Rehen und Wildschweinen.
 
 {{< columns >}}
@@ -761,3 +754,151 @@ beißendem, chlorhaltigen Desinfektionsmittel zu bestreuen. Auch die schöne, al
 {{< hint info >}}
 _Abbildung:_ Die kurfürstliche Kellerei
 {{< /hint >}}
+
+# Abschnitt 36
+Tröstlich für viele inzwischen unsicher und wankelmütig gewordene Bürger des Dritten Reiches war der Umstand, dass sich in der „Kurfürstlichen“ die Kreisleitung der NSDAP befand, die beim Bombardement einen Totalschaden erlitt. „Ballmanns Horst“ rettete aus
+den Trümmern der Kreisleitung ein Paket teures, weißes Schreibmaschinen-Papier mit der Kopfzeile in Gotischer Fraktur „Die Kreisleitung der NSDAP, Bernkastel“. Dieser Schatz hätte sich vor Wochen sehr gut verhökern lassen. Jetzt aber war der Besitz lebensgefährlich. Horst zeigte seine Beute „Olk´s Willi“, der davon abriet nur den Papierwert der Beute zu betrachten. Horst entschied sich sehr schnell, das Paket wieder loszuwerden. Er hat es in den Hauseingang eines stadtbekannten und radikalen Nazis gelegt, wo es sich binnen weniger Stunden in Feuer und Rauch auflöste. Während des Bombardements war der Felsenkeller fast leer, weil weder im Radio noch von den Sirenen Voralarm oder Alarm ausgelöst
+worden war.
+
+**Ein leerer Felsenkeller** war eine traurige Sache: Alles war nass und dunkel und es fehlte die Wärme der vielen Leiber und es fehlte das Wispern und Pispern der menschlichen Stimmen. Stattdessen hörte man,-fast rhythmisch-das helle Klicken der Wassertropfen in den Pfützen auf dem Steinboden. Und auf der Kasperlebühne von Frau Lüttiken lagen die leblosen Körper ihrer Puppen. Nur ganz in der Nähe des Ausgangs saß Tante Sisska bei einer jungen Frau, die leise vor sich hin weinte. Tante Sisska hatte einen Arm um den Hals der jungen Frau gelegt und weinte auch. Im anderen Arm hielt sie ein Bündel an ihren Körper gepresst, in dem ihr Säugling Manfred ebenfalls weinte. Die junge Frau wohnte in der Nähe, wo die Bomben eingeschlagen waren und sie wusste, dass sich ihre Mutter und ihre Schwester zuhause aufhielten als das Unglück geschah.
+
+Sie war wie betäubt und erzählte-wie im Traum- kuriose und zusammenhanglose Geschichten. Ganz besonders aber befürchtete sie, dass wahrscheinlich ihr neu gerahmtes Bild über ihrem Bett, das „Alpenglühen im Sommer “ jetzt in Schutt und Asche in den Trümmern läge. Das Weinen von Tante Sisska schlug blitzartig in ein hysterisches Lachen um, von dem auch die junge Frau angesteckt wurde. Sisska drückte ihren Manfred meiner Mutter in die Hand und schlug der jungen Frau vor, nachzusehen, ob das Haus von den Bomben getroffen wäre und ob das „Alpenglühen im Sommer“ vielleicht doch noch zu retten sei. An Ort und Stelle stellten die beiden Frauen fest, dass die Mutter und die Schwester im Keller des Nachbarhauses getötet worden waren, dass aber das „Alpenglühen im Sommer“ ein wenig schief, aber noch gut erhalten, an der alten Stelle hing. Seltsamerweise fanden alle, denen diese Geschichte bekannt wurde, dass es das Schicksal mit der jungen Frau irgendwie gut gemeint hätte und dass manches Unglück oft nicht ganz so schlimm sei, wie es im ersten Moment den Anschein habe.
+Einige Tage später meldete sich das Fräulein vom Amt am Telefon
+der Doctor-Weinstube und stellte die Verbindung mit unserem Opa her. Er teilte Tante Hedwig mit, dass er den letzten Bombenangriff von hier oben auf dem Bergfried miterlebt habe und fragte nach den Schäden und den Toten und ob wir nicht endlich vernünftig würden und zu ihm herauf auf den Bergfried kommen wollten. Wir sollten uns-bitte schön am nächsten Morgen sehr früh aufmachen und zu ihm kommen, sonst könnten wir uns den nächsten Angriff auf das Städtchen wo möglich nicht nur von hier oben, sondern von ein paar Etagen höher aus dem Himmel ansehen. Er werde uns den Herrn Zimmer mit einem Hand-wagen herunterschicken, damit wir das Nötigste mitbringen könnten, und -bitte sehr- 	nur das Nötigste, denn der sinnlose Siegeszug unserer ruhmreichen Soldaten sei bald zu Ende. 
+
+# Abschnitt 37
+Opas Anruf war keine Bitte, sondern ein Befehl. Wer sei denn Herr Zimmer, fragte die Tante. Ein Flüchtling aus der bombardierten Stadt Saarbrücken mit seiner Frau, den die Stadtverwaltung ihm aufs Auge gedrückt habe. Herr Zimmer habe ihm einen Schein mit vielen Stempeln vorgezeigt, der ihm und seiner Frau auf dem Bergfried eine Unterbringung in einer fremden Wohnung aber mit eigener Kochgelegenheit garantiere.
+
+Tante Hedwig gab sofort die Befehle zum Packen an Mutter Maria weiter und organisierte zusätzlich die Rettung der Wertsachen. Darunter verstand sie die teuren, versilberten Messer, Gabeln und Löffel aller Arten, die es in einem besseren Lokal gibt. Darunter verstand sie auch ihren Leopardenmantel, ihre Unterwäsche und Schmuckschatullen. Darunter verstand sie aber leider nicht die schönen uralten Kupferstiche, Bilder, Plastiken und Trinkgefäßen, die einen großen Anteil am guten Ruf der Doctor-Weinstube hatten. Keinen Platz auf dem Handwagen fanden auch unsere Spielsachen und das kleine Köfferchen unserer Mutter.
+In der Morgendämmerung standen dann Herr Zimmer und unsere liebe Hilde in der Hebegasse und beluden den Handwagen. Herr Zimmer und Hilde zogen den Wagen, Marlene und ich schoben ihn von hinten an. Über das Kopfsteinpflaster ratternd, ging es die Hebegasse hinauf, dann links um die Ecke, die Grabenstraße hinauf, durch das Graacher Tor und weiter auf den Alten Graacher Weg. Wir waren verschlafen und der schwere Handwagen ratterte und knirschte auf dem Pflaster des Weges und so überhörten wir das Geheul eines angreifenden Jagdflugzeuges und die erste Geschossgarbe knallte neben uns in die Straße, ehe wir
+in Deckung gehen konnten. Mutter Maria und ich hatten bei der Karnickeljagd in Monzelfeld schnell herausgefunden, welche Seite der Straße die bessere Deckung bot. Wir zerrten Marlene hinter uns her und legten uns platt auf den Boden, unten an der Weinbergmauer. Herr Zimmer zerrte Hilde neben uns und legte sich dabei schützend auf sie drauf. Dabei müssen sich die beiden etwas nähergekommen sein.
+
+Meine Mutter sah Hilde erstaunt an und schüttelte irritiert den Kopf. Tante Hedwig stand noch mitten auf dem Weg, gestikulierte mit den Armen und schrie, weil sich der Handwagen mit ihrem kostbaren Mantel in Bewegung setzte und erst langsam, dann immer schneller bergab fuhr und dann mit einem schrammenden Ton an der Wand entlang in den Misthaufen des Weingutes an der Ecke zur Grabenstraße fuhr. Tante Hedwig kletterte gerade auf den Misthaufen, als das Jagdflugzeug wiederauftauchte und die nächste Salve auf uns abschoss. Sie legte sich vor Angst platt auf den Misthaufen, deckte sich mit dem Mantel zu und betete laut zu ihrem Gott, dessen Existenz sie bisher noch nicht als wahrscheinlich oder möglich angesehen hatte. Das Flugzeug kam nicht wieder. Wir sammelten die Löffel, Gabeln, Messer und die Kistchen und Kästchen wieder auf den Wagen und zogen weiter auf dem Weg zu unserem Hof Bergfried. Tante Hedwig war während des ganzen Weges damit beschäftigt, Strohhalme und kleine stinkende Küttel aus dem Fell ihres Leoparden zu piddeln.
+
+# Abschnitt 38
+**Auf dem Bergfried angekommen**, gab es eine frohe Begrüßung. Tante Sisska und der kleine Manfred waren am Vortag angekommen. Opa erzählte, dass auch Tante Gretel angerufen habe. Es gehe ihr und Onkel Bernd den Umständen entsprechend gut und dass sie glücklich wäre, jetzt auch auf dem Bergfried zu sein. Sie mache sich große Sorgen um ihren Bernd, der immer noch in seiner braunen Uniform herumliefe, obwohl in dem Dörfchen Bonbaden, wo er Förster war, alle Parteigenossen nur noch in Zivilkleidung herumliefen. Sie könne aber ihren Bernd auch gut verstehen, denn die Partei habe ihm die Leitung einer Forst-Gau-Behörde in Nordafrika versprochen, mit einer riesigen Villa für den Leiter und eigenem Flugzeuglandeplatz. Es falle Bernd sehr schwer, die bereits völlig ausgearbeiteten Baupläne zu entsorgen oder dem Feind zu überlassen. Opa fügte hinzu: 
+
+    “Na ja, gut dass er nicht hier ist. Es würde ihm sicher nicht 
+    besonders leichtfallen, mit Flüchtlingen, desertierten Soldaten,
+    abtrünnigen Nazis, französischen und polnischen Zwangsarbeitern 
+    das Ende des tausendjährigen Reiches zu erleben.“ 
+
+
+{{< columns >}}
+![gretel](/gretel.jpg)
+{{< hint info >}}
+_Abbildung:_ Gretel
+{{< /hint >}}
+
+<--->
+![bernd](/bernd.jpg)
+{{< hint info >}}
+_Abbildung:_ Bernd
+{{< /hint >}}
+
+{{</columns>}}
+
+
+
+Mutter Maria und Tante Sisska fragten verständnis-los, wo denn all diese Leute seien. Opa meinte darauf, dass er diese Leute bald erwarte, denn er habe über Alex und Jakub und über einige Gleichgesinnte durchblicken lassen, dass er die von den Nazis angedrohten weiteren Todesmärschen, Hinrichtungen und Lynchakte in seinem Einflussbereich nicht dulden werde. Er werde morgen die weiße Fahne auf den Bergfried hissen und den Not-leidenden im Wohnhaus und im Kuhstall des Bergfrieds Asyl gewähren: Alex und Jakub seien ab sofort keine Zwangsarbeiter mehr, sondern Asylanten. Den Bewacher der beiden habe er fortgeschickt und ihm erklärt, dass es für ihn besser wäre, wenn er sich hier nicht mehr sehen ließe. Alex und Jakub sollten heute noch die kleine Felsenhöhle neben dem Quellenhaus im Wald oberhalb des Weinbergs für einen sicheren Aufenthalt der Familie vorbereiten. Der Schieferfelsen sei meterdick und könne, wenn der direkte Beschuss in der Frontzone beginne,guten Schutz bieten. Er selbst werde mit Herrn Tenheil und Herrn Zimmer seine Jagdgewehre auf Vordermann bringen, und mit etwas dickerem Schrot laden, damit etwaige unbeliebte Besucher seine Warnung auch richtig verstünden. 
+
+Unser Opa, den wir Kinder fast nur als leidenden, alten Mann kannten, der an zwei Stöcken langsam durch die Gegend schlurfte und hinter
+dem meist jemand herging, der einen Stuhl in der Hand hatte, schien uns sehr verändert, er war kaum wiederzuerkennen. Mit ruhiger Stimme gab er seine Anordnungen und alle taten, was er sagte-sogar Tante Hedwig.
+
+{{< columns >}}
+**Die beiden Asylanten**, Alex und Jakub, gingen zum Quellenhaus im Wald hinter unserem Weinberg, wo der Haustrunk der
+Doktor-Weinstube wuchs: Unser „Bernkasteler Hofberg“. Alex und Jakub fegten die kleine Felsenhöhle, in der die eigentliche Wasser-
+quelle lag, sauber, stellten einen kleinen Herd hinein und banden ein Ofenrohr an der Wand fest. Dann stellten sie den Eingang der Höhle
+mit jungen Bäumen und Sträucher so zu, dass man ihn vom Weg her kaum noch erkennen konnte. 
+<--->
+![alex](/alex.jpg)
+{{< hint info >}}
+_Abbildung:_ Alex
+{{< /hint >}}
+
+{{</columns>}}
+
+Auf den Boden breiteten sie alte Pferdedecken und Strohsäcke aus. Für Marlene und mich und die Kinder wurde die Schutzhöhle zu einem richtigen Abenteuerspielplatz im Wald. Der Bewacher unserer ehemaligen Zwangsarbeiter, den Opa vom Hof gejagt hatte, hat seinem Vorgesetzten gemeldet, was ihm auf dem Bergfried widerfahren war.
+
+# Abschnitt 39
+Dieser hat die Meldung an seinen Vorgesetzten weiterleiten wollen,
+aber keinen Vorgesetzten mehr gefunden. Darauf hat er ohne große Gewissensbisse weitere Zwangsarbeiter abhauen lassen, ohne irgendetwas zu unternehmen. Er musste nur dafür sorgen, dass die NSDAP oder--schlimmer noch die SS- nichts über die geflohenen Zwangsarbeiter erfuhren. Jetzt war es egal, wie viele noch fliehen würden. Die Tatsache, dass Alex und Jakub schon geflohen waren, reichte aus, um sie vor ein Erschießungskommando zu bringen. Sie verrieten deshalb auch nicht, wohin die Kerle wahrscheinlich geflohen waren und dachten, dass die Sieger ihre Großzügigkeit sicher in ein paar Tagen zu würdigen wissen.
+Alex und Jakub sagten nur wenigen Mitgefangenen, wohin sie fliehen werden. Dadurch erreichten sie, dass ihre Freunde gerettet werden konnten, ohne dass Opa Popp in Verlegenheit gebracht wurde, sein Asylheim wegen Überfüllung schließen zu müssen.Als am folgenden Samstag keine uniformierten Leute erschienen, um die Zwangsarbeiter abzuholen, gingen wir alle beruhigt in die Betten. Man würde voraussichtlich bis Montag Ruhe haben.Um vier Uhr in der Nacht ereignete sich eine gewaltige Detonation im Moseltal. Viele Scheiben der Fenster zersprangen in der Stoßwelle, das Vieh brüllte in den Ställen, in einigen Zimmern löste sich der Putz von der Decke und alle Bewohner des Bergfriedes wurden aus dem Schlaf gerissen und standen verstört und angstvoll herum. War es eine Bombe? War es eine von Hitlers Wunderwaffen? Das musste ein ganzer Eisenbahnzug voller Dynamit gewesen sein! Sie haben unsere schöne Moselbrücke gesprengt!   In ein paar Stunden werden wir Genaueres wissen“ und dann ging er still und traurig wieder in sein Schlafzimmer.
+
+{{<columns>}}
+Wenige Stunden später hatten wir die Gewissheit. Es war unsere schöne Moselbrücke. Obwohl sie „Hermann-Göring-Brücke“ hieß, wurde sie von einem deutschen Sprengtrupp in die Luft gejagt, nachdem Bernkasteler Bürger mehrfach versucht hatten, die Sprengung zu verhindern. Die Stadt hat unter der gewaltigen Detonation sehr gelitten: Tote, Verletzte, abgedeckte Dächer und überall Trümmer auf den Straßen.
+<--->
+![bruecke](/bruecke.jpg)
+{{< hint info >}}
+_Abbildung:_ Gesprengte Moselbrücke
+{{< /hint >}}
+{{</columns>}}
+
+**Die Propaganda** verkündete am nächsten Morgen mit triumphalem Pathos: 
+
+    “Dem Feind wird durch die Sprengung ein weiteres
+    Vordringen auf deutsches Gebiet unmöglich gemacht.“
+
+Die letzten deutschen Soldaten, die nicht es geschafft haben,
+rechtzeitig vor dem Feind über die Brücke zu fliehen, rudern und
+paddeln hastig auf Schlauchbooten und kleinen Fischerkähnen über
+die Mosel. Der Fluss schäumt über die Brückentrümmer und malt wilde Strudel in das Wasser. Sein Rauschen ist bis in die Mitte des
+Städtchens zu hören. Die Bürger von Bernkastel und Kues stehen an ihren Ufern, schauen sich kurz das Spektakel an und gehen wieder
+den gewohnten Tätigkeiten nach. Fensterscheiben einsetzen, Trümmer wegräumen und-zwischen den Zeiten im muffigen Felsenkeller-in der frischen Luft  „Schlange stehen“, in der Hoffnung auf irgendeinen Bezugsschein irgendetwas Essbares zu ergattern.
+Nachdem einige feindliche Aufklärungsflugzeuge über dem Hunsrück
+ihre Runden gedreht hatten, sind die Alliierten auf die überhastete Fluchtbewegung der deutschen Truppen aufmerksam geworden und sie begannen, die Fluchtwege durch die Seitentäler der Mosel in Richtung Hunsrück-Höhenstraße mit Trommelfeuer unter Artilleriebeschuss zu nehmen. 
+
+# Abschnitt 40
+Damit geriet auch unser Hof Bergfried in Gefahr. Die Straßen nach Monzelfeld und Longkamp, auf denen die deutschen Truppen flohen, und die beiden Dörfer selbst lagen nun unter dem Beschuss der feindlichen Kanonen. Die deutsche Artillerie schoss aus allen Rohren ihrer Vierlingsflak zurück und versuchte, die feindlichen Stellungen auszuschalten. Dabei heulten die Granaten in beiden Richtungen weit über unsere Köpfe hinweg und die amerikanischen Geschosse schlugen in der Nähe des Bergrückens in den Wald. Gefährlich waren die Salven, mit denen sich die Kanoniere „einschossen“ und die Geschütze noch nicht auf die eigentlichen Ziele justiert waren. Bei diesem „Einschießen“ krachte manchmal eine der Leuchtgranaten in der Nähe unseres Hauses in den Wald. Um der Gefahr eines „Volltreffers“ zu entgehen, liefen wir bei Beginn der Schießerei in unsere Felsenhöhle und warteten auf das meist sehr unerwartete und abrupte Ende der Kanonade. Von grausamer Schönheit war das Kanonenfeuer in der Dämmerung und bei Dunkelheit. Meist eröffneten die Amerikaner das Spektakel und schossen mit mehreren Geschützen in die Seiten-täler der Mosel und in die Berghöhen auf der Hunsrückseite. Mit fürchter-lichem Geheul jagten die Granaten heran, schlugen irgendwo weit über uns in die Wälder und detonierten mit einem lauten Knall. In das Inferno mischten sich dann aus der Ferne noch die Explosionen der feuernden Kanonen. Die Leuchtspurgeschosse zeichneten grelle Linien an den Himmel, die sich langsam annäherten.
+Wenn die Flugbahnen den jeweiligen Feindstellungen zu nahekamen, verstummte deren Feuer ganz plötzlich auf beiden Seiten und es herrschte für einige Zeit eine wohltuende Ruhe.
+Nach einem solchen plötzlichen Ende des Trommelfeuers hasteten wir
+im Dunkeln und im Gänsemarsch von unserer Felsenhöhle zurück zum Bergfried. Hilde und Marlene liefen voran und bestimmten das Tempo, Mama und ich bildeten das Ende der Kette. Kurz vor dem Eingangstor zum Bergfried setzte das Trommelfeuer der Amerikaner wieder ein.
+Die deutsche Antwort erfolgte sofort. Das Geheul der Geschosse war ohrenbetäubend und der Feuerzauber der feindlichen Granaten zischte nicht weit über unsere Köpfe  Dann plötzlich schlug eine verirrte Leuchtgranate kurz über uns in die Bäume, ein kurzer, scharfer Knall in unmittelbarer Nähe, hell verpuffter Leuchtstoff , alles für eine
+Blitzeslänge beleuchtet:
+Mutter Maria -hinter mir-stöhnte laut auf und fiel der Länge nach auf den Weg. Dort blieb sie liegen und regte sich nicht mehr. Ich blieb kurz stehen, dann rannte ich in blinder Angst weiter und kam als Letzter zum Kuhstall, wohinein sich alle geflüchtet hatten. Draußen heulten noch immer die Geschosse durch die Luft:
+
+    „Wo ist Maria?“
+    „Wo ist meine Schwester?“
+    „Wo ist Frau Masson?“
+
+    „Mama liegt draußen vor dem Tor!“
+
+# Abschnitt 41
+Entsetztes Schreien und Heulen, erstarrte Gesichter, mitleidvolles Seufzen. Dann, ungläubiges Staunen, Mutter Maria stand in der Türe und schaute sich fragend um: Sie war in einer zähen Brombeer-Schlinge hängengeblieben, der rechte Strumpf war zerrissen, ein Schuh lag noch draußen, das Bein blutete und ihre Frisur hing ihr im Gesicht. Große Freude, Tränen, Streicheln und Händeschütteln. Das Trommel feuer verstummte wieder plötzlich und der Abend endete in einer kleinen und herzlichen Feier. Alle freuten sich, weil noch einmal alles gut verlaufen war. Mutter Maria hatte ihre Hochschlagfrisur wieder in Ordnung
+gebracht und genoss den Trubel, der um sie entstanden war. Allerdings wehrte sie Händeschütteln, Schulterklopfen und Küsschen- Küsschen heftig ab. Mit kaputtem Strumpf, verlorenem Schuh und zerschundenem Knie wollte sie keine Huldigungen entgegennehmen.
+
+In der Dämmerung des nächsten Morgens war das Wetterleuchten der ganz nah herangerückten Front über dem anderen Moselufer deutlich am Himmel zu sehen und man hörte ein bedrohliches, tiefes Grollen mächtiger Motoren und das Rasseln von eisernen Ketten. Opa Popp kam zu dem Schluss, dass die Front bald zwischen Bernkastel und Kues verlaufen müsse. Auf der rechten Moselseite waren die alliierten Truppen noch etwas weiter entfernt. Die ungeheure Menge der fliehenden deutschen Soldaten mit all ihrem Kriegsgerät deute doch ziemlich klar an, dass an der Kampffront eigentlich kaum noch ein deutscher Soldat zu finden sei. Daraus schloss er, dass es rund um unser Städtchen wahrscheinlich gar nicht mehr zu Kampfhandlungen kommen werde. Weiter könne man daraus folgern, dass sich die Nazi-Bonzen auch schon in Sicherheit gebracht hätten und für ihn nicht mehr gefährlich werden könnten: „Jetzt ist Zeit zum Handeln! Wir kapitulieren!“
+Herr Tenheil nagelte sofort das bereitliegende weiße Betttuch an eine Bohnenstange und befestigte die Bohnenstange mit zwei dicken Seilen im Fenster über dem Eingang des Hauses. Das Betttuch war in der grauen Winterlandschaft weit und deutlich zu sehen und besiegelte für alle Bewohner des Hauses das Ende der Naziherrschaft auf Opas Bergfried.
+
+Während wir Kinder das wehende Tuch schick fanden, sahen es die Erwachsenen mit sehr gemischten Gefühlen an, denn sie ahnten das Risiko, welches mit dem Hissen einer weißen Fahne verbunden war, besonders auch, weil Opa anordnete, wann Opa, Herr Tenheil und Herr Zimmer zur Nachtwache in seinem Wohnzimmer zu erscheinen hatten. Frau Tenheil wurde von Opa angewiesen, die Essvorräte zu prüfen, sofort den Sauerteig anzusetzen und am nächsten Morgen den Teig für frisches Brot vorzubereiten. Im großen Trog in der Futterküche sollen ausreichend Kartoffel gegart werden. Frau Tenheil versicherte, dass ausreichend Salz vorhanden sei, notfalls werde man das Viehsalz für die Kartoffel nehmen, die hauseigene Quelle liefere genügend Trinkwasser und mit etwas Fett und Mehl ließe sich eine geschmackvolle Einbrennsoße machen. Dazu habe man ja auch noch die Milch der Kühe und damit auch ausreichend Butter, zumindest für die Herrschaften! Mein Schwesterlein Marlene meldete sich zu Wort und schlug Opa vor, auch Kleie mit unter die Pellkartoffel zu mischen: Die Kleie schmecke süß, wenn man sie nur lange genug im Mund lasse.
+Sie weiß. wo ein ganzer Sack davon im Schweinestall stehe.
+Opa nickte.
+
+# Abschnitt 42
+Das Telefon klingelte und als Opa den Hörer aufhob, erkannte er die Stimme eines befreundeten Herrn aus Kues: 
+
+    “Herr Popp! Sind Sie es?  Ganz schnell: Die Amerikaner sind in Kues. 
+    Auf Wiedersehen!“
+
+Jetzt war die Front in Bernkastel-Kues. Aber alles blieb ruhig. Ganz vereinzelt hörte man einen Gewehrschuss. Das war alles?? Keine Bomber mehr?  Kein Trommelfeuer mehr?
+Was war in unserem Städtchen los? Wo waren unsere Soldaten, die Nazis, die SS und die Militärpolizei? Was treiben die Amis in Kues? Ob man vom Doctor-Weinberg aus etwas erkennen kann? Wir könnten vielleicht ja mal nachschauen oder vielleicht doch nicht sofort?!
+Am späten Nachmittag kamen weitere vier Franzosen durch den Garten geschlichen und als die Sonne unterging trafen auch noch drei junge Polen ein. Sie waren schon am Vortag aus ihren Bewachern entwischt und hatten die kalte Nacht im Freien verbracht. Alle  waren sehr misstrauisch, aber, als Alex sie in den warmen Kuhstall schickte und ihnen Wasser und Brot anbot, strahlten sie vor Freude und legten sich auf die mit Heu gefüllten Säcke, Opa ließ die Gäste durch Alex und Jakub begrüßen und ließ ihnen ausrichten, dass sie  im warmen Kuhstall willkommen seien, dass sie auf dem großen Heuboden schlafen können und dass sie, wenn sich unbekannte Personen dem Haus nähern sollten, sofort im Stall zu verschwinden hätten.. Das sollten sie im wohlverstandenen, eigenen Interesse tun, denn es liefen nicht nur tollwütige Nazis draußen herum, sondern auch ihre eigenen verzweifelten Landsleute Die armen Kerle seien zum Teil bewaffnet und in ihrer Verzweiflung nicht sehr kalkulierbar. Der erste Abend und die erste Nacht im Asylantenheim Popp verliefen friedlich ohne besondere Vorkommnisse.
+
+Unsere Wachposten beobachteten den Platz vor unserem Haus, und
+das Pfädchen, welches entlang der Gartenmauer auf den
+Weinbergweg nach Bernkastel führt.
+Opa Popp hatte die Morgenwache, als sich plötzlich in der Frühe zwei Männer entlang der Mauer, die den Garten vom Weinberg trennt, auf das Haus zu schlichen. An ihrer gebückten Haltung und weil sie versuchten, unter den alten Sauerkirschbäumen unentdeckt zu bleiben, erkannte Opa sofort, dass die Männer nicht Gutes im Schilde führten. Er bat Hilde, sofort die Herren Tenheil und Zimmer herbeizurufen; Weiter sollte Hilde alle Hauseinwohner verständigen, dass keiner mehr das Haus verlassen darf.  Dann griff Opa nach einem seiner Jagdgewehre, dem doppelläufigen Zwilling, und schob in jeden der beiden Läufe je eine 3,5mm Schrotpatrone, Marke Rottweil. Herr Zimmer und Herr Tenheil luden ihre Schrotflinten ebenfalls mit Patronen aus dem Munitionspaket, auf das Opa mit seinem Gewehrlauf zeigte. Sie stellten sich so, dass alle Fenster mit Schützen besetzt, die Waffen aber zunächst für die Eindringlinge nicht sichtbar waren. Es gab nur einen kurzen Dialog zwischen den beiden Gruppen.
+
+    Opa: „Halt! Was wollen Sie hier?“
+    Der SS-Mann: „Die weiße Fahne runter, oder wir kommen rein!“
+    Opa: „Nein, verlassen Sie sofort mein Grundstück“
+    Ein SS-Mann: „Vorwärts, wir kommen rein“
+    Opa: „Keinen Schritt weiter oder es knallt!“
+    Ein SS-Mann: „Das werden Sie nicht wagen!“
+    Opa: „Feuer !!“
+
+
+
+
+
+
