@@ -2,4 +2,4 @@
 title: Deckblatt
 type: docs
 ---
-![Nullpunkt](/deckblatt.jpg)
+[![Nullpunkt](/deckblatt.jpg)]({{< relref "/docs/kapitel/ottweiler">}})

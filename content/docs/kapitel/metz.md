@@ -170,3 +170,6 @@ schnell mit Plünderern deutschen Eigentums kurzen Prozess machten.
 In der tödlichen Stimmung, sagte meine Mutter dann nach einer Weile die erlösenden Worte: „Behalten Sie alles als Geschenk“. Dann verließ sie das Haus Bertichamp und fuhr wieder nach Bernkastel.
 
 Aus einem Brief der Familie Gangler erfuhren wir kurz darauf, dass eine der ersten Bomben, die die Alliierten auf Metz geworfen haben, das Haus dem Erdboden gleich gemacht habe.
+
+{{< button relref="./ottweiler" >}}Zurück nach Ottweiler{{< /button >}}
+{{< button relref="./bernkastel" >}}Nach Bernkastel{{< /button >}}
