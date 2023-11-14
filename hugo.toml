@@ -2,6 +2,7 @@
 baseURL = 'https://ukirsche.github.io/'
 title = 'Nullpunkt'
 theme = 'book'
+defaultContentLanguage = 'de'
 
 # Book configuration
 disablePathToLower = true
@@ -10,7 +11,7 @@ enableGitInfo = true
 # Needed for mermaid/katex shortcodes
 [markup]
 [markup.goldmark.renderer]
-unsafe = true
+unsafe = false
 
 [markup.tableOfContents]
 startLevel = 1
@@ -20,8 +21,8 @@ startLevel = 1
 # See https://gohugo.io/content-management/multilingual/#translation-by-filename
 # And https://gohugo.io/content-management/multilingual/#translation-by-content-directory
 [languages]
-[languages.en]
-languageName = 'English'
+[languages.de]
+languageName = 'German'
 contentDir = 'content'
 weight = 1
 
@@ -73,7 +74,7 @@ BookEditPath = 'tree/main'
 # Configure the date format used on the pages
 # - In git information
 # - In blog posts
-BookDateFormat = 'January 2, 2006'
+BookDateFormat = '2. January 2006'
 
 # (Optional, default true) Enables search function with flexsearch,
 # Index is built on fly, therefore it might slowdown your website.
