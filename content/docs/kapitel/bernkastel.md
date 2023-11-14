@@ -898,7 +898,89 @@ Opa Popp hatte die Morgenwache, als sich plötzlich in der Frühe zwei Männer e
     Opa: „Feuer !!“
 
 
+# Abschnitt 43
 
+Die Schrotladungen aus drei Gewehrläufen  in die oberen Äste der Sauerkirschen ging weit über die Köpfe der SS-Leute, genauso, wie Opa es mit seinen Helfern besprochen hatte. Diese Warnung stoppte die Eindringlinge sofort. Voller Wut und ratlosem Staunen vor so viel bisher noch nicht erfahrener Auflehnung gegen die Staatsgewalt wollten die beiden SS-Männer ihre Pistolen aus den Halftern fummeln.
 
+    Opa: “Tiefer zielen! Und Feuer!“
 
+Die nächste Salve krachte nur noch einen Meter über den Köpfen in die Bäume und alte Äste und Rinde rieselte auf die SS-Leute herab. Sie hoben brav ihre Hände in die Höhe.
 
+    „Brave Leute!“ rief Opa ihnen zu: „Abmarsch!“
+
+Dann war der Spuk vorüber. Wohin die beiden SS-Leute marschiert sind, ist ungewiss. Sie werden es sich aber gut überlegt haben, denn im Städtchen begannen einige Bürger ihre SS-Peiniger zu suchen und zu jagen. Es roch nach Lynchjustiz.
+
+Die Sonne erschien, es waren keine Flugzeuge am Himmel, die Front war seit gestern nur noch in größerer Entfernung zu hören und die gefährlichen SS-Leute waren erfolglos abgehauen. In dieser euphorischen Stimmung erinnerte man sich an das Vorhaben, sich einmal vom Doctor-Berg aus die gesprengte Moselbrücke anzusehen. Da es bis zum Doctor-Berg höchstens 500 Meter waren und alle etwas Bewegung nötig hatten, zog eine Gruppe Erwachsener mit Marlene und mir den Weinbergfast hinab zum „Doctor“, dessen teure Lage vielleicht 50 Meter ober halb unseres Weges am Waldrand endete.
+
+Dort, wo die Weinlage Bernkasteler Badstube in die Lagen „Doctor“ und „Graben“ übergehen, standen wir genau über dem Städtchen und konnten das Moseltal von Andel bis nach Wehlen fast ganz überblicken. Das Städtchen war merkwürdig ruhig. Wir konnten keine Menschen am Gestade erkennen, es fuhren keine Autos und wir hörten keine Stimmen. Nur aus den Schornsteinen der Häuser kräuselten sich kleine, weiße Rauchwolken nach oben.Direkt vor unseren Füßen rauschten leise die Trümmer der Moselbrücke im Fluss. Irgendwie ahnte man den Frühling und den Anfang einer neuen Zeit. In Kues schien auch alles ruhig.
+Herr Zimmer machte einen Witz über die „Kueser Schweden“, die es wohl schon wieder mit den Siegern trieben-wie sie es schon im Dreißigjährigen Krieg mit Gustav Adolf getrieben hätten.
+
+Die Erwachsenen lachten laut, als ein heftiges Klopfen an einem Weinstock und ein lauter, jammernder Ton zu hören war. Kurz darauf
+war ein anderer Ton zu hören: Irgendetwas war auf eine Schieferplatte geschlagen, die mit einem trockenen „Plopp! zerplatzte. Dann wieder
+der jammernde Katzenschrei und ein kleiner Knall. Jetzt war es Herrn Zimmer klar: Wir lagen im Feuer der amerikanischen Scharfschützen,
+die das noch von den Deutschen besetzte Ufer beschossen.
+
+    „Hinlegen! Nicht bewegen! Kopf runter“ 
+
+rief Herr Zimmer und warf sich flach auf den Weinbergweg. Blitzartig lagen alle flach auf dem
+Weg, nur Marlene nicht. Mein Schwesterchen setzte sich seelenruhig an den Hang neben einen Weinstock und sah belustigt auf die anderen herab, die alle im Staub des Weges auf ihren Gesichtern lagen.
+
+    „Marlene! Hinlegen!“ 
+
+schrie Mama Maria und Marlene legte sich ganz gemütlich hin, zwar mit dem Kopf auf dem Boden aber immer noch im Hang und nicht auf der schützenden Straße.
+
+# Abschnitt 44
+Das Jaulen und Jammern der Querschläger wurde immer schlimmer und plötzlich schrie Marlene auf und lag ganz still. Mama Maria sprang auf, packte Marlene am Arm und zerrte sie hinab auf den Weg.
+
+    „Sie lebt“, rief Mama „aber sie blutet am Kopf“
+
+Herr Zimmer kroch vorsichtig zu den beiden hin, drückte Marlenchen sein Taschentuch ins Gesicht und rief „es ist nur eine kleine Verletzung!“ Eine Kugel war neben dem Kopf von Marlenchen in eine Schieferplatte geschlagen und ein scharfer Splitter der Steinplatte war in die linke Wange des Kindes eingedrungen.
+Obwohl mein Schwesterchen noch leise vor sich her weinte, krochen wir dann alle schnell hintereinander auf dem Bauch robbend um die Biegung des Weges, wo uns die Scharfschützen nicht mehr erreichen konnten.
+Auf dem Bergfried angekommen tanzten alle um den Tisch in Opas Wohnzimmer. Auf dem Tisch saß Marlenchen und presste ein teures, sauberes, weißes Einsteck-Taschentuch von Opa auf die Wunde.
+Das Taschentuch war mit einem goldenen Monogramm bestickt und mit gutem altem Tresterschnaps beträufelt worden, damit sich nichts entzünden sollte, nachdem Tante Hedwig mit einer kleinen Pinzette die kleinen schwarzen  Schiefersplitter aus der Wunde gepiddelt hatte.
+Die kleine Wunde heilte gut ab und verzierte Marlenes Lächeln bis ins hohe Alter.
+Das Ende des Krieges war anscheinend doch noch nicht endgültig in unserer kleinen Welt angekommen; es war noch zu früh, sich ganz sicher zu fühlen. Nach dem Schrecken mit den Scharfschützen kehrte wieder Ruhe ein im Haus und unsere Asylanten halfen Herrn und Frau Tenheil bei der Arbeit.Die Polen säuberten unter der Leitung von Jakub die Ställe, fütterten Pferde, Kühe und Schweine, sammelten die Eier ein und halfen beim Melken. Einer von ihnen schnitzte kleine Holzfiguren für uns Kinder. Die Franzosen drehten den Schwengel der Milchzentrifuge, stampften Butter, kochten Viehfutter und das Essen für die Herrschaften, Personal, Vertriebene und Asylanten und schäkerten mit Hilde,
+was Herrn Zimmer gar nicht sehr gefiel.
+
+**Am 17.März erschienen**, wie vom Himmel gefallen, zwei Herren in guten Anzügen, aber ziemlich zerzaust an der Tür des Bergfrieds, klingelten höflich und wollten Herrn Popp sprechen. Sie waren sehr aufgeregt und voller Angst. Opa bat die Herren in sein Zimmer und war sehr erstaunt, in einem Herrn den Nazi-Bonzen „Schumanns Hein“ aus Bernkastel zu erkennen. Der andere Mann war wohl ein Freund von Hein. Opa trat einen Schritt zurück, nahm eines seiner
+Jagdgewehre in die Hand und fragte Hein bösartig, was ihm die Ehre verschaffe, einen so hohen Nazibonzen bei sich begrüßen zu dürfen.
+Hein antwortete bescheiden und mit zitternder Stimme, er habe gehört, dass Opa einigen Leuten Asyl gewähre und er und sein Freund bäten ebenfalls um Asyl, weil die Bernkasteler ihn sonst vielleicht totschlügen; die erste Tracht Prügel hätten die beiden schon zu spüren bekommen.
+Einen Augenblick lang konnte man im Gesicht unseres Opas so etwas wie gemeine Schadenfreude erkennen, aber dann siegte in Opas Kopf wieder der alte liberale Geist und er sagte, dass in seinem Haus niemand gelyncht wird und dass er jedem Hilfesuchenden, auch wenn
+dieser ihm nicht willkommen sei, Asyl gewähre. Es gäbe aber ein Problem, denn er müsse die beiden zusammen mit den anderen Asylanten im gleichen Raum unterbringen und er sei sich nicht sicher, ob die anderen Asylanten vielleicht gerne noch einige offenstehende Rechnungen mit Hein und seinem Kumpel begleichen wollten.
+
+# Abschnitt 45
+Dann fuhr er fort: 
+
+    „Es ist sehr unwahrscheinlich, dass die Franzosen und Polen sie erkennen, 
+    wenn sie nicht den Mund aufmachen, oder wieder den deutschen Herrenmenschen 
+    spielen. 
+    Ich werde jeden aus dem Haus scheuchen, der Unruhe in mein Asyl bringt. 
+    Jakub und Alex werden sie ihren Landsleuten als deutscheHilfesuchende vorstellen. 
+    Jetzt rasieren sie sich zuerst mal ihren Hitler-Bart unter der Nase weg. 
+    Herr Tenheil wird ihnen sein Rasiermesser leihen. 
+    Dann verschwinden sie im Stall und lassen sich nicht mehr im Freien sehen, 
+    bis ich sie persönlich auffordere, herauszukommen. Haben Sie verstanden? 
+    Ich möchte auf keinen Fall, dass sich ihr Aufenthalt in meinem Haus in 
+    Bernkastel herumspricht und noch mehr Goldfasane ihrer Größenordnung hier 
+    auftauchen."
+
+Die beiden Bonzen versprachen, Opas Anweisungen zu befolgen und nach kurzer Zeit verschwanden die beiden im Stall, wo sie von den anderen Asylanten neugierig, aber nicht unfreundlich, geduldet wurden. Ganz kleinlaut und bescheiden nahmen sie Brot und Wasser sowie Pellkartoffeln mit Kleie von Alex an und verschwanden still im Heu.
+Opa dachte eine Weile konzentriert darüber nach, was er tun könne, wenn die gefährliche Mischung im Stall explodiere und er mit Gewalt Ruhe herstellen müsse. Er bestellte Herrn Zimmer zu sich und drückte ihm eine der Schrotflinten in die Hand.
+
+    „Nur im Notfall gebrauchen!
+    Den ersten Schuss-wie gehabt-über die Köpfe hinweg! 
+    Ich habe die kleinstmögliche Schrotgröße geladen; die tötet nicht, 
+    beruhigt aber schnell, wenn Sie auf den Hintern zielen!“
+
+Die Nacht auf dem Bergfried verlief ruhig und alle schliefen tief und fest.
+
+Im Städtchen war es nicht ganz so ruhig. Die ganze Nacht hörte man Motorengeräusche und leise Kommandos. Aber das störte niemanden; eine Nacht ohne Sirenen, ohne Warnmeldungen im Rundfunk, ohne Flugzeugangriffe und ohne Bomben war für die Bürger eine große Versuchung, sich tief in den Schlaf fallen zu lassen und Kräfte für den kommenden Tag zu sammeln. Selbst der lebensgefährliche Beschuss der amerikanischen Scharfschützen bereitete den todmüden Bernkasteler Bürgern keine allzu große Unruhe mehr.
+Man blieb zuhause und mied die Straßen und Fenster, in welche die amerikanischen Sportschützen hineinschießen konnten. Beruhigend war auch die Tatsache, dass die weißen Fahnen alle griffbereit standen und die Fahnenhalter an den Fenstern angebracht waren. Den Bürgern in der Todeszone zwischen den Fronten konnten eigentlich nur noch die eigenen Sicherheitskräfte schädlich werden: Die waren aber alle schon abgehauen und trauten sich nicht mehr in die Stadt, weil sie von der Tracht Prügel erfahren hatten, die ihren Parteigenossen widerfahren war. Darüber hinaus war es sehr wahrscheinlich, dass die Scharfschützen in Kues mit großer Wahrscheinlichkeit ihren Heeresführern von der erwartungsvollen Stille am anderen Ufer der Mosel berichtet hatten.
+Und deshalb konnten die Amerikaner in aller Ruhe, ohne feindliche Gegenwehr in das verschlafene Städtchen einziehen, in alle Sträßchen und Gässchen blicken und nirgendwo irgendeinen Feind entdecken.
+
+Als die Bürger am nächsten Morgen erwachten, hatte sich der Frieden klamm und heimlich in unser Städtchen eingeschlichen.
+
+# Abschnitt 46
+**Auf dem Gestade** standen drei Panzer mit leisen, brodelnden Motoren. Die Kanonenrohre zeigten in die Straßen hinein, die in die Stadt führten aber sie wirkten nicht sehr bedrohlich, weil oben auf den Panzern einige Soldaten saßen, die seelenruhig die Sonne genossen. Unser Städtchen wimmelte von amerikanischen Soldaten; gut genährte und sauber gekleidete junge Männer, die lässig in jede Haustür oder Kellertür schauten, ein Maschinengewehr in der Hand, eine Zigarette im Mundwinkel und den Helm leicht schief auf dem Kopf. Wie flüssiges Blei drangen sie in alle Ritzen und Löcher ein, schauten in Flure und Keller, in Klos und Vorratskammern und stellten innerhalb einer Stunde fest, dass es in der ganzen Stadt keinen Volkssturm und keine Wehrwölfe gab. In ganz kurzer Zeit hatten sie fast alle Ecken und Winkel durchstöbert.
+Nur um die beiden Felsenkeller am Fuße des Doctor-Berges machten sie zunächst einen Bogen. Die Eingänge mit ihren eisernen Toren erinnerten sie vielleicht zu sehr an die Propaganda von der sagenhaften deutschen Alpenfestung.
+Es gab kein Kommandogeschrei und kein Zusammenschlagen der Stiefel-Hacken. Der stramme Hitlergruß wurde ersetzt durch ein freundliches Tippen mit dem Zeigefinger an den Helm.  Die Herren Offiziere machten mit einem Kopfnicken oder einer kleinen Handbewegung klar, was sie wollten und die gemeinen Soldaten gaben mit einem Kopfnicken zu verstehen, dass sie verstanden hatten. Außer dem Brodeln der Panzermotore war nichts zu hören. Wie auf ein geheimes Zeichen brüllten die drei Panzer noch einmal kurz auf; dann verstummten die Motoren und es herrschte plötzlich eine fast fühlbare Stille. Ein Soldat kletterte aus Panzer und legte seinen Helm auf den Panzerturm, streckte seine Arme weit aus und blinzelte in die Sonne...
