@@ -26,7 +26,7 @@ Dies waren nicht die besten Voraussetzungen für einen strammen deutschen Herren
 ![Mutter](/mutter.jpg)
 <--->
 
-Meine Mama, Maria, war mit ihrer Zwillingsschwester Franziska-Sisska genannt, die älteste von 4 Mädchen aus einem reichen,liberalen und kunstsinnigen Haus in Bernkastel, welches von ihrem Vater sehr herrschaftlich geleitet war.
+Meine Mama, Maria, war mit ihrer Zwillingsschwester Franziska-Sisska genannt, die älteste von 4 Mädchen aus einem reichen, liberalen und kunstsinnigen Haus in Bernkastel, welches von ihrem Vater sehr herrschaftlich geleitet war.
 Die Gedanken waren frei, aber das Handeln war ausschließlich vom eisernen Willen des Vaters, Franz Popp, geprägt. Maria war von sehr kühler Art und wurde überwiegend von
 reiner Rationalität gesteuert. Sie arbeitete meist in der Kaltküche ihres elterlichen Gastbetriebes und wurde von ihren Geschwistern offen-vom übrigen Personal heimlich-die „Kaltmamsell“ genannt.
 Ihre dominante Wesensart war für unseren Vater fast wie ein Eisberg, gegen den er aber immer wieder ohne Erfolg anrannte. Für das Überleben der Familie, im Kriege und danach, waren Marias Eigenschaften so viel wert wie ein Parteibuch bei den Nazis.
